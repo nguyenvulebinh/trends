@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  " Dương Công Minh Sacombank"
-subtitle: "Bộ Công an: Chủ tịch Sacombank Dương Công Minh không bị cấm ..."
+list_title: "Bộ Công an: Chủ tịch Sacombank Dương Công Minh không bị cấm ..."
 date:   Wed, 03 Apr 2024 12:00:00 +0700
 categories: entries
 ---

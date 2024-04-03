@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "🔥🔥 Dương Công Minh"
-subtitle: "Bộ Công an: Ông Dương Công Minh, chủ tịch Sacombank, không bị ..."
+list_title: "Bộ Công an: Ông Dương Công Minh, chủ tịch Sacombank, không bị ..."
 date:   Tue, 02 Apr 2024 01:00:00 +0700
 categories: entries
 ---

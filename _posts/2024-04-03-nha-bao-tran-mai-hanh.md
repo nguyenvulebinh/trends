@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  " Nhà báo Trần Mai Hạnh"
-subtitle: "TIN BUỒN: Nhà văn, Nhà báo Trần Mai Hạnh từ trần"
+list_title: "TIN BUỒN: Nhà văn, Nhà báo Trần Mai Hạnh từ trần"
 date:   Wed, 03 Apr 2024 10:00:00 +0700
 categories: entries
 ---
