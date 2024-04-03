@@ -1,7 +1,6 @@
 ---
 layout: post
-title:  " Bùi Quỳnh Hoa"
-list_title: "Bùi Quỳnh Hoa bị buộc thôi học: Miss Universe Vietnam xin lỗi, nêu ..."
+title:  " [Bùi Quỳnh Hoa] Bùi Quỳnh Hoa bị buộc thôi học: Miss Universe Vietnam xin lỗi, nêu ..."
 date:   Wed, 03 Apr 2024 07:00:00 +0700
 categories: entries
 ---

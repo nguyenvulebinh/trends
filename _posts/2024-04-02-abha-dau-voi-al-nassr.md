@@ -1,7 +1,6 @@
 ---
 layout: post
-title:  "🔥🔥🔥 Abha đấu với Al-Nassr"
-list_title: "Kết quả Abha 0-8 Al Nassr: Ronaldo lập hat-trick thứ 2 liên tiếp"
+title:  "🔥🔥🔥 [Abha đấu với Al-Nassr] Kết quả Abha 0-8 Al Nassr: Ronaldo lập hat-trick thứ 2 liên tiếp"
 date:   Wed, 03 Apr 2024 02:00:00 +0700
 categories: entries
 ---

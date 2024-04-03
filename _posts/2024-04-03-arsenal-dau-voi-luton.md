@@ -1,7 +1,6 @@
 ---
 layout: post
-title:  " Arsenal đấu với Luton"
-list_title: "Nhận định bóng đá Arsenal vs Luton Town: Cơ hội chiếm ngôi đầu"
+title:  " [Arsenal đấu với Luton] Nhận định bóng đá Arsenal vs Luton Town: Cơ hội chiếm ngôi đầu"
 date:   Thu, 04 Apr 2024 00:00:00 +0700
 categories: entries
 ---

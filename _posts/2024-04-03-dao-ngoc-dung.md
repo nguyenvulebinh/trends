@@ -1,7 +1,6 @@
 ---
 layout: post
-title:  " Đào Ngọc Dung"
-list_title: "Ông Đào Ngọc Dung bị đề nghị kỷ luật, &#39;lò&#39; tiếp tục nóng - BBC News ..."
+title:  " [Đào Ngọc Dung] Ông Đào Ngọc Dung bị đề nghị kỷ luật, &#39;lò&#39; tiếp tục nóng - BBC News ..."
 date:   Wed, 03 Apr 2024 22:00:00 +0700
 categories: entries
 ---

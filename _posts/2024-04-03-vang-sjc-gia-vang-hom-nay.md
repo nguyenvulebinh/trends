@@ -1,7 +1,6 @@
 ---
 layout: post
-title:  " Vàng SJC giá vàng hôm nay"
-list_title: "Cập nhật giá vàng chốt phiên 3.4: Vàng nhẫn tăng sốc tới 700.000 ..."
+title:  " [Vàng SJC giá vàng hôm nay] Cập nhật giá vàng chốt phiên 3.4: Vàng nhẫn tăng sốc tới 700.000 ..."
 date:   Wed, 03 Apr 2024 20:00:00 +0700
 categories: entries
 ---

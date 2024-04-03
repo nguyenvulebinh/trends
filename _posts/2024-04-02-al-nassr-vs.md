@@ -1,7 +1,6 @@
 ---
 layout: post
-title:  " Al-Nassr vs"
-list_title: "PSG vs Al-Nassr【77Bet.Casino】Châu Á Đỉnh Cao Casino Trực ..."
+title:  " [Al-Nassr vs] PSG vs Al-Nassr【77Bet.Casino】Châu Á Đỉnh Cao Casino Trực ..."
 date:   Wed, 03 Apr 2024 06:00:00 +0700
 categories: entries
 ---
