@@ -2,7 +2,7 @@ name: run rss_parser
 
 on:
   schedule:
-    - cron: '0 */2 * * *' # Every 2 hours
+    - cron: '*/2 * * * *' # Every 2 hours
 
 jobs:
   build:
