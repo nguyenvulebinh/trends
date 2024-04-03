@@ -7,18 +7,17 @@ rss_config = dotenv_values('.env_rss')
 
 def convert_entry_to_md(entry):
     hot_rate = int(entry['ht_approx_traffic'].replace('+', '').replace(',', '')) # 2,000+ 20,000+ -> emoji:  🔥
-    if hot_rate < 1000:
+    if hot_rate < 10000:
         hot_rate = ''
-    elif hot_rate < 5000:
-        hot_rate = '🔥'
-    elif hot_rate < 10000:
+    elif hot_rate < 50000:
         hot_rate = '🔥🔥'
-    else:
+    elif hot_rate < 100000:
         hot_rate = '🔥🔥🔥'
-     
+    else:
+        hot_rate = '🔥🔥🔥🔥'
     md = f"""---
 layout: post
-title:  "{hot_rate} {entry.title}"
+title:  "{hot_rate} [{entry.title}] {entry['ht_news_item_title']}"
 date:   {entry.published}
 categories: entries
 ---
