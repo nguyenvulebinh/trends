@@ -1,6 +1,7 @@
 ---
 layout: post
-title:  "🔥🔥🔥 West Ham đấu với Tottenham"
+title:  "🔥🔥 West Ham đấu với Tottenham"
+subtitle: "Tottenham thấy hy vọng tốp 4 bị cản trở khi hòa West Ham"
 date:   Tue, 02 Apr 2024 22:00:00 +0700
 categories: entries
 ---

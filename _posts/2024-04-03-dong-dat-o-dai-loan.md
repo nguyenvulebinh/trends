@@ -1,6 +1,7 @@
 ---
 layout: post
-title:  "🔥🔥🔥 Động đất ở Đài Loan"
+title:  "🔥🔥 Động đất ở Đài Loan"
+subtitle: "Động đất ở Đài Loan (Trung Quốc): Con số thương vong tăng nhanh"
 date:   Wed, 03 Apr 2024 11:00:00 +0700
 categories: entries
 ---
