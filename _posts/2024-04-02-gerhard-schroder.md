@@ -6,8 +6,6 @@ categories: entries DE
 ---
 [ARD-Film über Gerhard Schröder: Putin ist sein großer Freund. Basta.](https://www.faz.net/aktuell/feuilleton/medien/gerhard-schroeder-story-in-der-ard-putin-ist-sein-grosser-freund-19626535.html)
 
-Die ARD begleitet Ex-Kanzler Gerhard Schröder und zeigt: Er ist mit sich im Reinen. Der Film „Außer Dienst? Die Gerhard-Schröder-Story“...
-
 ![ARD-Film über Gerhard Schröder: Putin ist sein großer Freund. Basta.](https://media1.faz.net/ppmedia/aktuell/3493143009/1.9626531/facebook_teaser_fplus/er-sieht-sich-als-staatsmann.jpg)
 
 Die ARD begleitet Ex-Kanzler Gerhard Schröder und zeigt: Er ist mit sich im Reinen. Der Film „Außer Dienst? Die Gerhard-Schröder-Story“...

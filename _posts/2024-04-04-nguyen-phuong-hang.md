@@ -6,11 +6,9 @@ categories: entries VN
 ---
 [Bị cáo Nguyễn Phương Hằng: "Tôi rất ân hận"](https://dantri.com.vn/phap-luat/bi-cao-nguyen-phuong-hang-toi-rat-an-han-20240404055434861.htm)
 
-Đối với kháng cáo xin hưởng án treo của bị cáo Huỳnh Công Tân, Mai Lê Thu Hà và Nguyễn Thị Mai Nhi, VKS cho rằng không có tình tiết mới nên không có căn cứ chấp&nbsp;...
-
 ![Bị cáo Nguyễn Phương Hằng: "Tôi rất ân hận"](https://cdnphoto.dantri.com.vn/3-YLM7VjnSUE94B3CN-pPu5lWWs=/zoom/1200_630/2024/04/04/hang-hang-crop-1712197945028.jpeg)
 
-Đối với kháng cáo xin hưởng án treo của bị cáo Huỳnh Công Tân, Mai Lê Thu Hà và Nguyễn Thị Mai Nhi, VKS cho rằng không có tình tiết mới nên không có căn cứ chấp&nbsp;...
+Đối với kháng cáo xin hưởng án treo của bị cáo Huỳnh Công Tân, Mai Lê Thu Hà và Nguyễn Thị Mai Nhi, VKS cho rằng không có tình tiết mới nên không có căn cứ chấp ...
 
 Sáng 4/4, TAND Cấp cao mở phiên tòa phúc thẩm xem xét kháng cáo xin giảm nhẹ hình phạt của Đặng Anh Quân (43 tuổi, cựu giảng viên Trường đại học Luật TPHCM) và Nguyễn Thị Mai Nhi, Huỳnh Công Tân, Lê Thị Thu Hà (nhân viên Công ty Cổ phần Đại Nam) về tội Lợi dụng các quyền tự do dân chủ xâm phạm lợi ích của nhà nước, quyền, lợi ích hợp pháp của tổ chức, cá nhân. Phiên tòa dự kiến diễn ra trong 2 ngày.
 

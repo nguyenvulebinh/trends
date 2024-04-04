@@ -2,6 +2,7 @@ import feedparser
 import time
 from dotenv import dotenv_values
 from unidecode import unidecode
+import html
 import os
 import traceback
 from newspaper import Article
@@ -14,8 +15,8 @@ def extract_content_from_news_url(url):
         article = Article(url)
         article.download()
         article.parse()
-        summary = article.summary
-        content = article.text
+        summary = html.unescape(article.summary)
+        content = html.unescape(article.text)
         image = article.top_image
     except:
         traceback.print_exc()
@@ -34,11 +35,7 @@ def convert_entry_to_md(entry, geo):
         hot_rate = '🔥🔥🔥🔥'
 
     # convert escape characters to unicode
-    # "&gt;": '>',
-    # "&lt;": '<',
-    # "&quot;": '"',
-    # "&amp;": '&',
-    item_title = entry['ht_news_item_title'].replace("&gt;", '>').replace("&lt;", '<').replace("&quot;", '"').replace("&amp;", '&')
+    item_title = html.unescape(entry['ht_news_item_title'])
 
     md = f"""---
 layout: post
@@ -48,7 +45,7 @@ categories: entries {geo}
 ---
 """
     md += f"[{item_title}]({entry['ht_news_item_url']})\n\n"
-    md += f"{entry['ht_news_item_snippet']}\n\n"
+    # md += f"{entry['ht_news_item_snippet']}\n\n"
 
     summary, content, image = extract_content_from_news_url(entry['ht_news_item_url'])
 
@@ -58,7 +55,7 @@ categories: entries {geo}
     if summary:
         md += f"{summary}\n\n"
     else:
-        md += f"{entry['ht_news_item_snippet']}\n\n"
+        md += f"{html.unescape(entry['ht_news_item_snippet'])}\n\n"
     if content:
         md += f"{content}\n\n"
 

@@ -1,16 +1,14 @@
 ---
 layout: post
-title:  " [Trần Duy Đông] Bắt Phó cục trưởng Trần Duy Đông: &#39;Sức mạnh kim tiền&#39;, sự thật bị ..."
+title:  " [Trần Duy Đông] Bắt Phó cục trưởng Trần Duy Đông: 'Sức mạnh kim tiền', sự thật bị ..."
 date:   Thu, 04 Apr 2024 10:00:00 +0700
 categories: entries VN
 ---
-[Bắt Phó cục trưởng Trần Duy Đông: &#39;Sức mạnh kim tiền&#39;, sự thật bị ...](https://vietnamnet.vn/bat-pho-vu-truong-tran-duy-dong-suc-manh-kim-tien-su-that-bi-chi-trich-2266851.html)
+[Bắt Phó cục trưởng Trần Duy Đông: 'Sức mạnh kim tiền', sự thật bị ...](https://vietnamnet.vn/bat-pho-vu-truong-tran-duy-dong-suc-manh-kim-tien-su-that-bi-chi-trich-2266851.html)
 
-Trước khi vụ án Xuyên Việt Oil được phanh phui, cán bộ Bộ Công Thương trong đó có Cục trưởng Trần Duy Đông khẳng định việc cấp phép cho doanh nghiệp này là&nbsp;...
+![Bắt Phó cục trưởng Trần Duy Đông: 'Sức mạnh kim tiền', sự thật bị ...](https://static-images.vnncdn.net/files/publish/2024/4/3/bat-pho-vu-truong-tran-duy-dong-suc-manh-kim-tien-su-that-bi-chi-trich-1313.jpg)
 
-![Bắt Phó cục trưởng Trần Duy Đông: &#39;Sức mạnh kim tiền&#39;, sự thật bị ...](https://static-images.vnncdn.net/files/publish/2024/4/3/bat-pho-vu-truong-tran-duy-dong-suc-manh-kim-tien-su-that-bi-chi-trich-1313.jpg)
-
-Trước khi vụ án Xuyên Việt Oil được phanh phui, cán bộ Bộ Công Thương trong đó có Cục trưởng Trần Duy Đông khẳng định việc cấp phép cho doanh nghiệp này là&nbsp;...
+Trước khi vụ án Xuyên Việt Oil được phanh phui, cán bộ Bộ Công Thương trong đó có Cục trưởng Trần Duy Đông khẳng định việc cấp phép cho doanh nghiệp này là ...
 
 Cục An ninh điều tra Bộ Công an (A09) vừa khởi tố bị can, bắt tạm giam 3 người trong đó có Phó Cục trưởng Cục Xúc tiến thương mại (Bộ Công Thương) Trần Duy Đông bị bắt về tội nhận hối lộ.
 

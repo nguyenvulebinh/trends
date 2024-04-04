@@ -6,11 +6,9 @@ categories: entries DE
 ---
 [»Waterboarding«-Szene: Hannah Waddingham leidet seit »Game of ...](https://www.spiegel.de/kultur/tv/hannah-waddingham-leidet-seit-game-of-thrones-dreh-unter-chronischer-klaustrophobie-a-67f6c92e-da87-4e4d-8eb5-619f211aba49)
 
-Bei den Dreharbeiten zu »Game of Thrones« musste Schauspielerin Hannah Waddingham einiges ertragen. In einer Talkshow sprach die Schauspielerin von »echtem&nbsp;...
-
 ![»Waterboarding«-Szene: Hannah Waddingham leidet seit »Game of ...](https://cdn.prod.www.spiegel.de/images/637416c8-b0fd-4093-b618-a7130e13b8f8_w1200_r1.778_fpx59.24_fpy44.85.jpg)
 
-Bei den Dreharbeiten zu »Game of Thrones« musste Schauspielerin Hannah Waddingham einiges ertragen. In einer Talkshow sprach die Schauspielerin von »echtem&nbsp;...
+Bei den Dreharbeiten zu »Game of Thrones« musste Schauspielerin Hannah Waddingham einiges ertragen. In einer Talkshow sprach die Schauspielerin von »echtem ...
 
 Empfohlener externer Inhalt
 

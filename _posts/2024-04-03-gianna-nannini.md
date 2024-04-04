@@ -6,11 +6,9 @@ categories: entries DE
 ---
 [Neues Album, neuer Film, neues Buch: Gianna Nannini wird siebzig](https://www.nzz.ch/feuilleton/neues-album-neuer-film-neues-buch-gianna-nannini-wird-siebzig-jahre-ld.1824559)
 
-Gianna Nanninis Beitrag gegen die Altersdiskriminierung: «Der Tod ist obligatorisch, das Alter fakultativ». Die italienische Musikerin wird siebzig,&nbsp;...
-
 ![Neues Album, neuer Film, neues Buch: Gianna Nannini wird siebzig](https://img.nzz.ch/2024/04/03/ab828937-efa7-4b03-a284-bfbcb7e6e33e.jpeg?width=1200&height=675&fit=bound&quality=75&auto=webp&crop=2826,1590,x0,y223&wmark=nzz)
 
-Gianna Nanninis Beitrag gegen die Altersdiskriminierung: «Der Tod ist obligatorisch, das Alter fakultativ». Die italienische Musikerin wird siebzig,&nbsp;...
+Gianna Nanninis Beitrag gegen die Altersdiskriminierung: «Der Tod ist obligatorisch, das Alter fakultativ». Die italienische Musikerin wird siebzig, ...
 
 «Der Tod ist obligatorisch, das Alter fakultativ»: Am Telefon mit Gianna Nannini Es herrscht «Nanninimania»: Die italienische Musikerin wird siebzig, gibt ein neues Album heraus und ist in Italien gerade auf allen Kanälen präsent. Ein Gespräch mit Italiens Rocksängerin Nummer eins.
 

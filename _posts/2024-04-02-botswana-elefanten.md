@@ -6,8 +6,6 @@ categories: entries DE
 ---
 [Streit um Jagdtrophäen: Botswana will 20.000 Elefanten an ...](https://www.faz.net/aktuell/politik/botswana-will-20-000-elefanten-an-deutschland-abgeben-19629445.html)
 
-Das ist kein Scherz“, meint der Präsident von Botswana, der sich verärgert über einen Vorstoß von Umweltministerin Steffi Lemke zeigt....
-
 ![Streit um Jagdtrophäen: Botswana will 20.000 Elefanten an ...](https://media0.faz.net/ppmedia/aktuell/76680182/1.9629516/facebook_teaser/wer-beobachtet-hier-wen-eine.jpg)
 
 Das ist kein Scherz“, meint der Präsident von Botswana, der sich verärgert über einen Vorstoß von Umweltministerin Steffi Lemke zeigt....

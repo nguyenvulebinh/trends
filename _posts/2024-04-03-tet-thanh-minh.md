@@ -6,13 +6,11 @@ categories: entries VN
 ---
 [Tết Thanh minh - hướng về nguồn cội - Báo Thái Bình điện tử](https://baothaibinh.com.vn/tin-tuc/19/196499/tet-thanh-minh-huong-ve-nguon-coi)
 
-Với đạo lý “Uống nước nhớ nguồn”, từ xa xưa, tết Thanh minh là ngày lễ quan trọng, thiêng liêng trong tín ngưỡng thờ cúng tổ tiên của người Việt Nam.
-
 ![Tết Thanh minh - hướng về nguồn cội - Báo Thái Bình điện tử](https://media.baothaibinh.com.vn/upload/news/4_2024/tet_thanh_minh_huong_ve_nguon_coi_11134304042024.jpg)
 
 Với đạo lý “Uống nước nhớ nguồn”, từ xa xưa, tết Thanh minh là ngày lễ quan trọng, thiêng liêng trong tín ngưỡng thờ cúng tổ tiên của người Việt Nam.
 
-258 lượt xem
+273 lượt xem
 
 Với đạo lý “Uống nước nhớ nguồn”, từ xa xưa, tết Thanh minh là ngày lễ quan trọng, thiêng liêng trong tín ngưỡng thờ cúng tổ tiên của người Việt Nam. Đây là dịp để các gia đình, dòng họ tổ chức tảo mộ, sửa sang lại phần mộ của gia đình, dòng tộc cho khang trang, sạch sẽ, quây quần bên nhau nhớ về ông bà, tổ tiên, cùng hướng về nguồn cội của mình.
 

@@ -6,11 +6,9 @@ categories: entries DE
 ---
 [Philipp Amthor soll CDU-Generalsekretär in Mecklenburg ...](https://www.ndr.de/nachrichten/mecklenburg-vorpommern/Philipp-Amthor-soll-CDU-Generalsekretaer-in-MV-werden,amthorcdu100.html)
 
-Der Bundestagsabgeordnete Philipp Amthor soll CDU-Generalsekretär in Mecklenburg-Vorpommern werden. Der designierte Landesparteichef Daniel Peters will&nbsp;...
-
 ![Philipp Amthor soll CDU-Generalsekretär in Mecklenburg ...](https://www.ndr.de/nachrichten/mecklenburg-vorpommern/amthor188_v-contentxl.jpg)
 
-Der Bundestagsabgeordnete Philipp Amthor soll CDU-Generalsekretär in Mecklenburg-Vorpommern werden. Der designierte Landesparteichef Daniel Peters will&nbsp;...
+Der Bundestagsabgeordnete Philipp Amthor soll CDU-Generalsekretär in Mecklenburg-Vorpommern werden. Der designierte Landesparteichef Daniel Peters will ...
 
 Philipp Amthor soll CDU-Generalsekretär in MV werden Stand: 03.04.2024 14:31 Uhr Der Bundestagsabgeordnete Philipp Amthor soll CDU-Generalsekretär in Mecklenburg-Vorpommern werden. Der designierte Landesparteichef Daniel Peters will Amthor auf dem Parteitag Mitte April für das Amt vorschlagen.
 

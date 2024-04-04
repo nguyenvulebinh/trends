@@ -6,8 +6,6 @@ categories: entries VN
 ---
 [Trực tiếp Inter Miami vs Monterrey: Đội bóng của Messi thua ngược](https://webthethao.vn/bong-da-quoc-te/truc-tiep-inter-miami-vs-monterrey-cho-doi-song-tau-messi-suarez-JkV9haxIg.htm)
 
-Trực tiếp trận đấu giữa Inter Miami và Monterrey thuộc vòng tứ kết Concachampions vào lúc 7h00 ngày 4/4. Cập nhật diễn biến trận Inter Miami vs Monterrey.
-
 ![Trực tiếp Inter Miami vs Monterrey: Đội bóng của Messi thua ngược](https://cdnmedia.webthethao.vn/thumb/720-405/uploads/2024-04-03/inter-miami-monterey.jpg)
 
 Trực tiếp trận đấu giữa Inter Miami và Monterrey thuộc vòng tứ kết Concachampions vào lúc 7h00 ngày 4/4. Cập nhật diễn biến trận Inter Miami vs Monterrey.

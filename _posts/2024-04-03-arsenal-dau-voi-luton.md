@@ -6,11 +6,9 @@ categories: entries VN
 ---
 [Link trực tiếp trận Arsenal vs Luton Town, vòng 31 Premier League](https://laodong.vn/bong-da-quoc-te/link-truc-tiep-tran-arsenal-vs-luton-town-vong-31-premier-league-1323076.ldo)
 
-Mặc dù chỉ có 27% thời gian kiểm soát bóng trong trận đấu vào ngày Chủ nhật Phục sinh đó, đoàn quân của Mikel Arteta đã có 9 trận liên tiếp không thua (thắng 8,&nbsp;...
-
 ![Link trực tiếp trận Arsenal vs Luton Town, vòng 31 Premier League](https://media-cdn-v2.laodong.vn/storage/newsportal/2024/4/3/1323076/Arsenal-Vs-Luton-Tow.jpg?w=800&h=420&crop=auto&scale=both)
 
-Mặc dù chỉ có 27% thời gian kiểm soát bóng trong trận đấu vào ngày Chủ nhật Phục sinh đó, đoàn quân của Mikel Arteta đã có 9 trận liên tiếp không thua (thắng 8,&nbsp;...
+Mặc dù chỉ có 27% thời gian kiểm soát bóng trong trận đấu vào ngày Chủ nhật Phục sinh đó, đoàn quân của Mikel Arteta đã có 9 trận liên tiếp không thua (thắng 8, ...
 
 TAM NGUYÊN - Thứ tư, 03/04/2024 19:23 (GMT+7)
 

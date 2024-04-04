@@ -6,8 +6,6 @@ categories: entries DE
 ---
 [Nicolette Krebitz: Filme, Freund und Sohn](https://www.fuersie.de/unterhaltung/nicolette-krebitz-filme-freund-und-sohn-14846.html)
 
-Sie ist Schauspielerin, Regisseurin und Musikerin – doch was macht Nicolette Krebitz, wenn sie nicht gerade vor oder hinter der Kamera steht?
-
 ![Nicolette Krebitz: Filme, Freund und Sohn](https://www.fuersie.de/sites/default/files/styles/facebook/public/2024-04/nicolette-krebitz.jpg?itok=aLzaGdHB)
 
 Sie ist Schauspielerin, Regisseurin und Musikerin – doch was macht Nicolette Krebitz, wenn sie nicht gerade vor oder hinter der Kamera steht?

@@ -6,8 +6,6 @@ categories: entries DE
 ---
 [RN+ Nach Prozess um erfundenen Davidstern-Skandal: Gil Ofarim ...](https://www.ruhrnachrichten.de/ueberregionales/nach-prozess-um-erfundenen-davidstern-skandal-gil-ofarim-zurueck-auf-instagram-w864006-2001160505/)
 
-Gil Ofarim meldet sich nach dem Prozess um einen erfundenen Davidstern-Skandal zurück - mit neuer Frisur und Brille.
-
 ![RN+ Nach Prozess um erfundenen Davidstern-Skandal: Gil Ofarim ...](https://www.ruhrnachrichten.de/wp-content/uploads/2024/04/03/17/630_0900_3659763_urn_newsml_dpa-1312x656.jpg)
 
 Gil Ofarim meldet sich nach dem Prozess um einen erfundenen Davidstern-Skandal zurück - mit neuer Frisur und Brille.

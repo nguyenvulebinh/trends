@@ -6,11 +6,9 @@ categories: entries DE
 ---
 [„Cypress Hill“ kommen für Open-Air nach Saarbrücken](https://www.sol.de/saarland/cypress-hill-kommen-fuer-open-air-nach-saarbruecken,488188.html)
 
-&quot;Cypress Hill&quot; bringen ihren legendären Sound im Sommer nach Saarbrücken. Die US-Rap-Ikonen stehen im Juli im Rahmen der &quot;SB Open Airs&quot; auf der Bühne am&nbsp;...
-
 ![„Cypress Hill“ kommen für Open-Air nach Saarbrücken](https://www.sol.de/wp-content/uploads/2024/04/50308753-scaled.jpg)
 
-&quot;Cypress Hill&quot; bringen ihren legendären Sound im Sommer nach Saarbrücken. Die US-Rap-Ikonen stehen im Juli im Rahmen der &quot;SB Open Airs&quot; auf der Bühne am&nbsp;...
+"Cypress Hill" bringen ihren legendären Sound im Sommer nach Saarbrücken. Die US-Rap-Ikonen stehen im Juli im Rahmen der "SB Open Airs" auf der Bühne am ...
 
 „Cypress Hill“ kommen im Sommer für Open-Air-Konzert nach Saarbrücken
 

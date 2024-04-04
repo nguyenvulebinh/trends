@@ -6,9 +6,7 @@ categories: entries VN
 ---
 [Thắng Fortuna Duesseldorf, Bayer Leverkusen nối dài chuỗi 40 trận ...](https://baoquocte.vn/thang-fortuna-duesseldorf-bayer-leverkusen-noi-dai-chuoi-40-tran-bat-bai-266584.html)
 
-Rạng sáng 4/4, Bayer Leverkusen dễ dàng vượt qua Fortuna Duesseldorf với tỷ số 4-0 để giành vé vào chung kết Cup quốc gia Đức 2023/24.
-
-![Thắng Fortuna Duesseldorf, Bayer Leverkusen nối dài chuỗi 40 trận ...](https://cdn.baoquocte.vn/stores/news_dataimages/2024/042024/04/07/croped/bayer-leverkusen-20240404070031.jpg?randTime=1712221178)
+![Thắng Fortuna Duesseldorf, Bayer Leverkusen nối dài chuỗi 40 trận ...](https://cdn.baoquocte.vn/stores/news_dataimages/2024/042024/04/07/croped/bayer-leverkusen-20240404070031.jpg?randTime=1712222037)
 
 Rạng sáng 4/4, Bayer Leverkusen dễ dàng vượt qua Fortuna Duesseldorf với tỷ số 4-0 để giành vé vào chung kết Cup quốc gia Đức 2023/24.
 

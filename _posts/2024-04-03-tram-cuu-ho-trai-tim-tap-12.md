@@ -1,16 +1,14 @@
 ---
 layout: post
-title:  " [Trạm cứu hộ trái tim tập 12] Phim &#39;Trạm cứu hộ trái tim&#39; tập 12: Ông Trường tỉnh lại, Nghĩa bị ..."
+title:  " [Trạm cứu hộ trái tim tập 12] Phim 'Trạm cứu hộ trái tim' tập 12: Ông Trường tỉnh lại, Nghĩa bị ..."
 date:   Wed, 03 Apr 2024 09:00:00 +0700
 categories: entries VN
 ---
-[Phim &#39;Trạm cứu hộ trái tim&#39; tập 12: Ông Trường tỉnh lại, Nghĩa bị ...](https://thanhnien.vn/phim-tram-cuu-ho-trai-tim-tap-12-ong-truong-tinh-lai-nghia-bi-danh-up-185240403101012575.htm)
+[Phim 'Trạm cứu hộ trái tim' tập 12: Ông Trường tỉnh lại, Nghĩa bị ...](https://thanhnien.vn/phim-tram-cuu-ho-trai-tim-tap-12-ong-truong-tinh-lai-nghia-bi-danh-up-185240403101012575.htm)
 
-Phim &#39;Trạm cứu hộ trái tim&#39; tập 12: Mỹ Đình quay clip Nghĩa tổ chức sinh nhật cho bé Gôn; Ông Trường đã tỉnh lại; Nghĩa &#39;lật bài&#39; với Ngân Hà.
+![Phim 'Trạm cứu hộ trái tim' tập 12: Ông Trường tỉnh lại, Nghĩa bị ...](https://images2.thanhnien.vn/zoom/600_315/528068263637045248/2024/4/3/1999-1712113699019470304283-0-0-362-691-crop-1712113739870968987977.png)
 
-![Phim &#39;Trạm cứu hộ trái tim&#39; tập 12: Ông Trường tỉnh lại, Nghĩa bị ...](https://images2.thanhnien.vn/zoom/600_315/528068263637045248/2024/4/3/1999-1712113699019470304283-0-0-362-691-crop-1712113739870968987977.png)
-
-Phim &#39;Trạm cứu hộ trái tim&#39; tập 12: Mỹ Đình quay clip Nghĩa tổ chức sinh nhật cho bé Gôn; Ông Trường đã tỉnh lại; Nghĩa &#39;lật bài&#39; với Ngân Hà.
+Phim 'Trạm cứu hộ trái tim' tập 12: Mỹ Đình quay clip Nghĩa tổ chức sinh nhật cho bé Gôn; Ông Trường đã tỉnh lại; Nghĩa 'lật bài' với Ngân Hà.
 
 Phim Trạm cứu hộ trái tim tập 11 tối qua tiếp tục những diễn biến kịch tính. Sau khi ông Trường nhập viện vì đột quỵ, Nghĩa bắt tay với người phụ trách pháp lý của công ty Lan Hà là Tuấn. Cả hai thông báo công ty đang gặp nhiều vấn đề lớn, cần một người có đủ thẩm quyền để điều hành. Trong khi đó, ông Trường đã chuyển nhượng công ty, tài sản cho Ngân Hà. Trước tình thế này, Ngân Hà đã ký vào văn bản ủy quyền cho Nghĩa làm tổng giám đốc công ty trong vòng 2 tháng.
 

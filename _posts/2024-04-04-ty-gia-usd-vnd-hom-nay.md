@@ -1,16 +1,14 @@
 ---
 layout: post
-title:  " [Tỷ giá USD/VND hôm nay] Tỷ giá ngoại tệ, tỷ giá USD/VND hôm nay 4/4: USD &#39;lao đao&#39;, vì sao ..."
+title:  " [Tỷ giá USD/VND hôm nay] Tỷ giá ngoại tệ, tỷ giá USD/VND hôm nay 4/4: USD 'lao đao', vì sao ..."
 date:   Thu, 04 Apr 2024 11:00:00 +0700
 categories: entries VN
 ---
-[Tỷ giá ngoại tệ, tỷ giá USD/VND hôm nay 4/4: USD &#39;lao đao&#39;, vì sao ...](https://baoquocte.vn/ty-gia-ngoai-te-ty-gia-usdvnd-hom-nay-44-usd-lao-dao-vi-sao-ty-gia-trong-nuoc-nong-hon-266508.html)
+[Tỷ giá ngoại tệ, tỷ giá USD/VND hôm nay 4/4: USD 'lao đao', vì sao ...](https://baoquocte.vn/ty-gia-ngoai-te-ty-gia-usdvnd-hom-nay-44-usd-lao-dao-vi-sao-ty-gia-trong-nuoc-nong-hon-266508.html)
 
-Theo ghi nhận của TG&amp;VN lúc 7h ngày 4/4, chỉ số Dollar Index (DXY), đo lường đồng USD với 6 đồng tiền chủ chốt (EUR, JPY, GBP, CAD, SEK, CHF) ở mức 104,23, giảm&nbsp;...
+![Tỷ giá ngoại tệ, tỷ giá USD/VND hôm nay 4/4: USD 'lao đao', vì sao ...](https://cdn.baoquocte.vn/stores/news_dataimages/hoangha/082020/11/07/in_social/ty-gia-usd-hom-nay-118-dong-usd-neo-o-nguong-cao-nhat-1-tuan-do-gia-vang-giam-ap-luc-van-rat-lon.jpg?randTime=1712220802)
 
-![Tỷ giá ngoại tệ, tỷ giá USD/VND hôm nay 4/4: USD &#39;lao đao&#39;, vì sao ...](https://cdn.baoquocte.vn/stores/news_dataimages/hoangha/082020/11/07/in_social/ty-gia-usd-hom-nay-118-dong-usd-neo-o-nguong-cao-nhat-1-tuan-do-gia-vang-giam-ap-luc-van-rat-lon.jpg?randTime=1712220979)
-
-Theo ghi nhận của TG&amp;VN lúc 7h ngày 4/4, chỉ số Dollar Index (DXY), đo lường đồng USD với 6 đồng tiền chủ chốt (EUR, JPY, GBP, CAD, SEK, CHF) ở mức 104,23, giảm&nbsp;...
+Theo ghi nhận của TG&VN lúc 7h ngày 4/4, chỉ số Dollar Index (DXY), đo lường đồng USD với 6 đồng tiền chủ chốt (EUR, JPY, GBP, CAD, SEK, CHF) ở mức 104,23, giảm ...
 
 Bảng cập nhật tỷ giá ngoại tệ - tỷ giá USD Vietcombank hôm nay
 

@@ -6,8 +6,6 @@ categories: entries DE
 ---
 [Kirche - Benediktinermönch Notker Wolf ist tot](https://www.schwarzwaelder-bote.de/inhalt.kirche-benediktinermoench-notker-wolf-ist-tot.539f96cf-ad8f-4a15-b48c-f64f21fdcee6.html)
 
-Mönch, Rocker, Mutmacher: Der bekannte Benediktinermönch Notker Wolf ist im Alter von 83 gestorben.
-
 ![Kirche - Benediktinermönch Notker Wolf ist tot](https://www.schwarzwaelder-bote.de/media.media.948ab04d-43b3-4cfd-858b-423ce31f1c84.16x9_1024.jpg)
 
 Mönch, Rocker, Mutmacher: Der bekannte Benediktinermönch Notker Wolf ist im Alter von 83 gestorben.

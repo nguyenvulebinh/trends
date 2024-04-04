@@ -6,11 +6,9 @@ categories: entries DE
 ---
 [Pokalfinale: Ex-FCK-Coach Dirk Schuster wünscht Nachfolger ...](https://www.swr.de/sport/fussball/dfb-pokal/dirk-schuster-wuenscht-friedhelm-funkel-den-dfb-pokal-100.html)
 
-Der frühere Trainer Dirk Schuster hat sich &quot;riesig&quot; über den Einzug des 1. FC Kaiserslautern ins Finale des DFB-Pokals gefreut.
-
 ![Pokalfinale: Ex-FCK-Coach Dirk Schuster wünscht Nachfolger ...](https://www.swr.de/sport/fussball/1-fc-kaiserslautern/1712211349279%2Cdirk-schuster-200~_v-16x9@2dL_-6c42aff4e68b43c7868c3240d3ebfa29867457da.jpg)
 
-Der frühere Trainer Dirk Schuster hat sich &quot;riesig&quot; über den Einzug des 1. FC Kaiserslautern ins Finale des DFB-Pokals gefreut.
+Der frühere Trainer Dirk Schuster hat sich "riesig" über den Einzug des 1. FC Kaiserslautern ins Finale des DFB-Pokals gefreut.
 
 Der frühere Trainer Dirk Schuster hat sich "riesig" über den Einzug des 1. FC Kaiserslautern ins Finale des DFB-Pokals gefreut und will Friedhelm Funkel weiter bei den Roten Teufeln sehen.
 

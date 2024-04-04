@@ -6,11 +6,9 @@ categories: entries VN
 ---
 [Lịch thi đấu bóng đá hôm nay 4/4: MU đại chiến Chelsea](https://congthuong.vn/lich-thi-dau-bong-da-hom-nay-44-mu-dai-chien-chelsea-song-lam-nghe-an-gap-cong-an-ha-noi-312709.html)
 
-Ngoài ra, vòng 31 Ngoại hạng Anh diễn ra trận đại chiến giữa Chelsea và MU, Liverpool cùng Sheffield Utd. Lịch thi đấu V-LEAGUE 2023/2024 - Vòng 15. 17h00, ngày&nbsp;...
+![Lịch thi đấu bóng đá hôm nay 4/4: MU đại chiến Chelsea](https://congthuong-cdn.mastercms.vn/stores/news_dataimages/2024/042024/04/09/in_social/chelsea-mu-1920240404090608.jpg?randTime=1712222062)
 
-![Lịch thi đấu bóng đá hôm nay 4/4: MU đại chiến Chelsea](https://congthuong-cdn.mastercms.vn/stores/news_dataimages/2024/042024/04/09/in_social/chelsea-mu-1920240404090608.jpg?randTime=1712220643)
-
-Ngoài ra, vòng 31 Ngoại hạng Anh diễn ra trận đại chiến giữa Chelsea và MU, Liverpool cùng Sheffield Utd. Lịch thi đấu V-LEAGUE 2023/2024 - Vòng 15. 17h00, ngày&nbsp;...
+Ngoài ra, vòng 31 Ngoại hạng Anh diễn ra trận đại chiến giữa Chelsea và MU, Liverpool cùng Sheffield Utd. Lịch thi đấu V-LEAGUE 2023/2024 - Vòng 15. 17h00, ngày ...
 
 Theo lịch thi đấu và trực tiếp bóng đá hôm nay 4/4, rạng sáng 5/4/2024, tâm điểm của sự chú ý là loạt trận đấu ở vòng 15 V-League 2023/2024 và vòng 31 Ngoại hạng Anh 2023/2024 sẽ được diễn ra.
 

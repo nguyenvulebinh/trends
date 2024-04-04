@@ -6,11 +6,9 @@ categories: entries VN
 ---
 [Nhà báo Trần Mai Hạnh: Thời gian đã ngưng lại mãi mãi nơi chiến ...](https://www.vietnamplus.vn/nha-bao-tran-mai-hanh-thoi-gian-da-ngung-lai-mai-mai-noi-chien-truong-xua-post938316.vnp)
 
-Hành trình của nhà báo Trần Mai Hạnh đã dừng lại tại Thành phố Hồ Chí Minh, nơi ông từng chứng kiến những sự kiện lịch sử ngày 30/4/1975, cảm hứng cho những&nbsp;...
-
 ![Nhà báo Trần Mai Hạnh: Thời gian đã ngưng lại mãi mãi nơi chiến ...](https://imagev3.vietnamplus.vn/1200x630/Uploaded/2024/tpuoaob/2024_04_04/20220412-162730-7416.jpg.webp)
 
-Hành trình của nhà báo Trần Mai Hạnh đã dừng lại tại Thành phố Hồ Chí Minh, nơi ông từng chứng kiến những sự kiện lịch sử ngày 30/4/1975, cảm hứng cho những&nbsp;...
+Hành trình của nhà báo Trần Mai Hạnh đã dừng lại tại Thành phố Hồ Chí Minh, nơi ông từng chứng kiến những sự kiện lịch sử ngày 30/4/1975, cảm hứng cho những ...
 
 Hành trình của nhà báo Trần Mai Hạnh đã dừng lại tại Thành phố Hồ Chí Minh, nơi ông từng chứng kiến những sự kiện lịch sử ngày 30/4/1975, cảm hứng cho những tác phẩm để đời của ông.
 

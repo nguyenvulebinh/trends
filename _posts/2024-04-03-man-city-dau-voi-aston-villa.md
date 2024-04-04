@@ -6,11 +6,9 @@ categories: entries VN
 ---
 [Kết quả Man City 4-1 Aston Villa: Siêu hat-trick của Foden](https://bongdaplus.vn/ngoai-hang-anh/ket-qua-man-city-vs-aston-villa-sieu-hat-trick-cua-foden-4270612404.html)
 
-Trận đấu thuộc vòng 31 giải Ngoại hạng Anh giữa Man City vs Aston Villa đã kết thúc với chiến thắng dễ dàng dành cho đội chủ nhà với tỷ số 4-1, trong đó có&nbsp;...
-
 ![Kết quả Man City 4-1 Aston Villa: Siêu hat-trick của Foden](https://cdn.bongdaplus.vn/Assets/Media/2024/04/04/41/Man-City-vs-Aston-Villa.jpg)
 
-Trận đấu thuộc vòng 31 giải Ngoại hạng Anh giữa Man City vs Aston Villa đã kết thúc với chiến thắng dễ dàng dành cho đội chủ nhà với tỷ số 4-1, trong đó có&nbsp;...
+Trận đấu thuộc vòng 31 giải Ngoại hạng Anh giữa Man City vs Aston Villa đã kết thúc với chiến thắng dễ dàng dành cho đội chủ nhà với tỷ số 4-1, trong đó có ...
 
 Trận đấu thuộc vòng 31 giải Ngoại hạng Anh giữa Man City vs Aston Villa đã kết thúc với chiến thắng dễ dàng dành cho đội chủ nhà với tỷ số 4-1, trong đó có siêu hat-trick của tiền vệ Phil Foden.
 

@@ -6,8 +6,6 @@ categories: entries VN
 ---
 [Động đất ở Đài Loan: Số người thiệt mạng và bị thương tiếp tục tăng](https://baotintuc.vn/the-gioi/dong-dat-o-dai-loan-so-nguoi-thiet-mang-va-bi-thuong-tiep-tuc-tang-20240404081046327.htm)
 
-Tính đến sáng 4/4 (theo giờ Việt Nam), đã có 9 người thiệt mạng và hơn 1.000 người bị thương trong thảm họa động đất xảy ra tại Đài Loan (Trung Quốc).
-
 ![Động đất ở Đài Loan: Số người thiệt mạng và bị thương tiếp tục tăng](https://cdnmedia.baotintuc.vn/Upload/c2tvplmdloSDblsn03qN2Q/files/2024/04/04/dong-dat-o-dai-loan-442024.jpg)
 
 Tính đến sáng 4/4 (theo giờ Việt Nam), đã có 9 người thiệt mạng và hơn 1.000 người bị thương trong thảm họa động đất xảy ra tại Đài Loan (Trung Quốc).

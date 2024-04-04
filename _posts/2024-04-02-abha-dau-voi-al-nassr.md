@@ -6,11 +6,9 @@ categories: entries VN
 ---
 [Kết quả Abha 0-8 Al Nassr: Ronaldo lập hat-trick thứ 2 liên tiếp](https://bongdaplus.vn/bong-da-the-gioi/ket-qua-abha-vs-al-nassr-ronaldo-lap-hat-trick-thu-2-lien-tiep-4269892404.html)
 
-Ở trận đấu giữa Abha vs Al Nassr tại vòng 26 giải VĐQG Saudi Arabia 2023/24, đội khách đã có thắng lợi tưng bừng 8-0 với điểm nhấn là cú hat-trick của siêu&nbsp;...
-
 ![Kết quả Abha 0-8 Al Nassr: Ronaldo lập hat-trick thứ 2 liên tiếp](https://cdn.bongdaplus.vn/Assets/Media/2024/04/03/8/Abha-Al-Nassr-0-8.jpg)
 
-Ở trận đấu giữa Abha vs Al Nassr tại vòng 26 giải VĐQG Saudi Arabia 2023/24, đội khách đã có thắng lợi tưng bừng 8-0 với điểm nhấn là cú hat-trick của siêu&nbsp;...
+Ở trận đấu giữa Abha vs Al Nassr tại vòng 26 giải VĐQG Saudi Arabia 2023/24, đội khách đã có thắng lợi tưng bừng 8-0 với điểm nhấn là cú hat-trick của siêu ...
 
 Ở trận đấu giữa Abha vs Al Nassr tại vòng 26 giải VĐQG Saudi Arabia 2023/24, đội khách đã có thắng lợi tưng bừng 8-0 với điểm nhấn là cú hat-trick của siêu sao Cristiano Ronaldo.
 
