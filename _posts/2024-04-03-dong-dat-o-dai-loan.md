@@ -1,34 +1,24 @@
 ---
 layout: post
-title:  "🔥🔥 [Động đất ở Đài Loan] Giây phút bể bơi &#39;dậy sóng&#39; trong động đất ở Đài Loan"
+title:  "🔥🔥 [Động đất ở Đài Loan] Động đất ở Đài Loan: Số người thiệt mạng và bị thương tiếp tục tăng"
 date:   Wed, 03 Apr 2024 11:00:00 +0700
 categories: entries VN
 ---
-[Giây phút bể bơi &#39;dậy sóng&#39; trong động đất ở Đài Loan](https://vnexpress.net/giay-phut-be-boi-day-song-trong-dong-dat-o-dai-loan-4730271.html)
+[Động đất ở Đài Loan: Số người thiệt mạng và bị thương tiếp tục tăng](https://baotintuc.vn/the-gioi/dong-dat-o-dai-loan-so-nguoi-thiet-mang-va-bi-thuong-tiep-tuc-tang-20240404081046327.htm)
 
-Video đăng trên mạng xã hội hôm 3/4 cho thấy giây phút bể bơi rung lắc trên sân thượng khách sạn Regent Taipei ở Đài Bắc, khi trận động đất mạnh 7,4 độ xảy ra.
+Tính đến sáng 4/4 (theo giờ Việt Nam), đã có 9 người thiệt mạng và hơn 1.000 người bị thương trong thảm họa động đất xảy ra tại Đài Loan (Trung Quốc).
 
-![Giây phút bể bơi &#39;dậy sóng&#39; trong động đất ở Đài Loan](https://i2-vnexpress.vnecdn.net/2024/04/04/be-boi-jpeg-1712188704-5225-1712189254.jpg?w=1200&h=0&q=100&dpr=1&fit=crop&s=SDNdDK38bulCcMyNa7Y9ww)
+![Động đất ở Đài Loan: Số người thiệt mạng và bị thương tiếp tục tăng](https://cdnmedia.baotintuc.vn/Upload/c2tvplmdloSDblsn03qN2Q/files/2024/04/04/dong-dat-o-dai-loan-442024.jpg)
 
-Video đăng trên mạng xã hội hôm 3/4 cho thấy giây phút bể bơi rung lắc trên sân thượng khách sạn Regent Taipei ở Đài Bắc, khi trận động đất mạnh 7,4 độ xảy ra.
+Tính đến sáng 4/4 (theo giờ Việt Nam), đã có 9 người thiệt mạng và hơn 1.000 người bị thương trong thảm họa động đất xảy ra tại Đài Loan (Trung Quốc).
 
-Bể bơi trên sân thượng khách sạn ở Đài Bắc chao đảo, tạo nhiều đợt sóng lớn trong trận động đất 7,4 độ, nhưng một nam du khách vẫn bám trụ bên dưới.
+Một tòa nhà bị đổ nghiêng sau động đất tại Hoa Liên, Đài Loan (Trung Quốc) ngày 3/4/2024. Ảnh: AFP/TTXVN
 
-Video đăng trên mạng xã hội hôm 3/4 cho thấy giây phút bể bơi rung lắc trên sân thượng khách sạn Regent Taipei ở Đài Bắc, khi trận động đất mạnh 7,4 độ xảy ra.
+Trung tâm địa chấn thuộc Cơ quan quản lý thời tiết Đài Bắc cho biết trận động đất nói trên là cơn địa chấn mạnh nhất tại Đài Loan trong 25 năm qua, kể từ trận động đất có độ lớn 7,6 xảy ra vào tháng 9/1999 khiến khoảng 2.400 người thiệt mạng. Các chuyên gia đồng thời cảnh báo sẽ tiếp tục có thêm nhiều chấn động địa chất tại đây trong những ngày tới.
 
-Rung chấn khiến mặt nước dập dềnh và liên tục bắn tung tóe lên thành bể. Nam du khách vẫn bình tĩnh đứng giữa bể bơi trong suốt thời gian rung chấn, trong khi bạn của người này quay video.
+Trận động đất mới nhất này đã khiến hàng chục tòa nhà tại Đài Loan hư hại. Theo những hình ảnh phát sóng trên truyền hình, một số tòa nhà đổ nghiêng rất nguy hiểm tại huyện miền núi Hoa Liên (Hualien), nơi gần tâm chấn động đất. Các hình ảnh video cho thấy lực lượng cứu hộ sử dụng thang để đưa những người bị kẹt qua cửa sổ, trong khi lở đất lớn lại xảy ra tại nhiều nơi. Các cơn dư chấn đã khiến hệ thống tàu điện ngầm ở một số địa phương phải tạm thời đóng cửa, mặc dù hầu hết các tuyến đã hoạt động trở lại. Trận động đất cũng gây ra lở đất diện rộng, khiến hàng chục người bị cô lập. Trong số đó, nhiều người đang mắc kẹt trong các đường hầm xuyên núi.
 
-Bể bơi chao đảo trong động đất ở Đài Loan Bể bơi khách sạn Taipei Regent ở Đài Bắc, Đài Loan chao đảo trong động đất ngày 3/4. Video: Taiwan News
+Mặc dù vậy, các quy định xây dựng nghiêm ngặt và nhận thức rộng rãi về thảm họa của công chúng dường như đã ngăn chặn được thảm họa lớn đối với hòn đảo thường xuyên xảy ra động đất do nằm gần điểm giao nhau của hai mảng kiến tạo địa chất này.
 
-Khách sạn Regent Taipei không bình luận về video, nhưng cho biết bể bơi đã bị đóng cửa do các rung chấn sau động đất. Một số bát đĩa trong nhà hàng của khách sạn bị vỡ và nhân viên được phân công sơ tán khách qua lối thoát hiểm trong trường hợp khẩn cấp.
-
-Ít nhất 9 người đã thiệt mạng, hơn 1.000 người bị thương, 143 người vẫn mắc kẹt và hàng chục tòa nhà bị hư hại do trận động đất 7,4 độ xảy ra sáng 3/4. Các trường hợp tử vong đều ở huyện Hoa Liên, nơi chịu ảnh hưởng nghiêm trọng nhất.
-
-Đây là trận động đất lớn nhất ở Đài Loan 25 năm qua, kể từ sau trận động đất 7,6 độ khiến 2.400 người thiệt mạng và 50.000 căn nhà bị sập năm 1999. Giới chức cảnh báo sẽ xảy ra nhiều rung chấn trong những ngày tới. Lãnh đạo Đài Loan Thái Anh Văn cảnh báo người dân không tới vùng núi nếu không cần thiết.
-
-Quy định xây dựng nghiêm ngặt và nhận thức phổ biến của người dân về thảm họa dường như đã ngăn chặn được thảm kịch ở hòn đảo thường xuyên xảy ra động đất.
-
-Động đất mạnh nhất 25 năm rung chuyển Đài Loan Động đất 7,4 độ ở Đài Loan ngày 3/4. Video: AFP, Reuters
-
-Huyền Lê (Theo Taiwan News, Reuters)
+Theo công ty điện lực Taipower, phần lớn mạng lưới điện đã được khôi phục sau trận động đất do hai nhà máy điện hạt nhân trên đảo không bị ảnh hưởng. Nhà điều hành đường sắt cao tốc của Đài Loan cho biết không có thiệt hại về người và vật chất trên các chuyến tàu của công ty mặc dù các dịch vụ sẽ bị trì hoãn do cần kiểm tra để đảm bảo an toàn.
 

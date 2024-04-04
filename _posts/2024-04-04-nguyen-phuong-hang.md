@@ -1,14 +1,14 @@
 ---
 layout: post
-title:  " [Nguyễn Phương Hằng] Bị cáo Nguyễn Phương Hằng: &quot;Tôi rất ân hận&quot;"
+title:  " [Nguyễn Phương Hằng] Bị cáo Nguyễn Phương Hằng: "Tôi rất ân hận""
 date:   Thu, 04 Apr 2024 13:00:00 +0700
 categories: entries VN
 ---
-[Bị cáo Nguyễn Phương Hằng: &quot;Tôi rất ân hận&quot;](https://dantri.com.vn/phap-luat/bi-cao-nguyen-phuong-hang-toi-rat-an-han-20240404055434861.htm)
+[Bị cáo Nguyễn Phương Hằng: "Tôi rất ân hận"](https://dantri.com.vn/phap-luat/bi-cao-nguyen-phuong-hang-toi-rat-an-han-20240404055434861.htm)
 
 Đối với kháng cáo xin hưởng án treo của bị cáo Huỳnh Công Tân, Mai Lê Thu Hà và Nguyễn Thị Mai Nhi, VKS cho rằng không có tình tiết mới nên không có căn cứ chấp&nbsp;...
 
-![Bị cáo Nguyễn Phương Hằng: &quot;Tôi rất ân hận&quot;](https://cdnphoto.dantri.com.vn/3-YLM7VjnSUE94B3CN-pPu5lWWs=/zoom/1200_630/2024/04/04/hang-hang-crop-1712197945028.jpeg)
+![Bị cáo Nguyễn Phương Hằng: "Tôi rất ân hận"](https://cdnphoto.dantri.com.vn/3-YLM7VjnSUE94B3CN-pPu5lWWs=/zoom/1200_630/2024/04/04/hang-hang-crop-1712197945028.jpeg)
 
 Đối với kháng cáo xin hưởng án treo của bị cáo Huỳnh Công Tân, Mai Lê Thu Hà và Nguyễn Thị Mai Nhi, VKS cho rằng không có tình tiết mới nên không có căn cứ chấp&nbsp;...
 

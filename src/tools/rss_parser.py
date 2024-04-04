@@ -32,20 +32,28 @@ def convert_entry_to_md(entry, geo):
         hot_rate = '🔥🔥🔥'
     else:
         hot_rate = '🔥🔥🔥🔥'
+
+    # convert escape characters to unicode
+    # "&gt;": '>',
+    # "&lt;": '<',
+    # "&quot;": '"',
+    # "&amp;": '&',
+    item_title = entry['ht_news_item_title'].replace("&gt;", '>').replace("&lt;", '<').replace("&quot;", '"').replace("&amp;", '&')
+
     md = f"""---
 layout: post
-title:  "{hot_rate} [{entry.title}] {entry['ht_news_item_title']}"
+title:  "{hot_rate} [{entry.title}] {item_title}"
 date:   {entry.published}
 categories: entries {geo}
 ---
 """
-    md += f"[{entry['ht_news_item_title']}]({entry['ht_news_item_url']})\n\n"
+    md += f"[{item_title}]({entry['ht_news_item_url']})\n\n"
     md += f"{entry['ht_news_item_snippet']}\n\n"
 
     summary, content, image = extract_content_from_news_url(entry['ht_news_item_url'])
 
     if image:
-        md += f"![{entry['ht_news_item_title']}]({image})\n\n"
+        md += f"![{item_title}]({image})\n\n"
 
     if summary:
         md += f"{summary}\n\n"

@@ -8,7 +8,7 @@ categories: entries VN
 
 Rạng sáng 4/4, Bayer Leverkusen dễ dàng vượt qua Fortuna Duesseldorf với tỷ số 4-0 để giành vé vào chung kết Cup quốc gia Đức 2023/24.
 
-![Thắng Fortuna Duesseldorf, Bayer Leverkusen nối dài chuỗi 40 trận ...](https://cdn.baoquocte.vn/stores/news_dataimages/2024/042024/04/07/croped/bayer-leverkusen-20240404070031.jpg?randTime=1712218864)
+![Thắng Fortuna Duesseldorf, Bayer Leverkusen nối dài chuỗi 40 trận ...](https://cdn.baoquocte.vn/stores/news_dataimages/2024/042024/04/07/croped/bayer-leverkusen-20240404070031.jpg?randTime=1712221178)
 
 Rạng sáng 4/4, Bayer Leverkusen dễ dàng vượt qua Fortuna Duesseldorf với tỷ số 4-0 để giành vé vào chung kết Cup quốc gia Đức 2023/24.
 

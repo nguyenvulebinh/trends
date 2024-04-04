@@ -8,13 +8,13 @@ categories: entries VN
 
 Theo ghi nhận của TG&amp;VN lúc 7h ngày 4/4, chỉ số Dollar Index (DXY), đo lường đồng USD với 6 đồng tiền chủ chốt (EUR, JPY, GBP, CAD, SEK, CHF) ở mức 104,23, giảm&nbsp;...
 
-![Tỷ giá ngoại tệ, tỷ giá USD/VND hôm nay 4/4: USD &#39;lao đao&#39;, vì sao ...](https://cdn.baoquocte.vn/stores/news_dataimages/hoangha/082020/11/07/in_social/ty-gia-usd-hom-nay-118-dong-usd-neo-o-nguong-cao-nhat-1-tuan-do-gia-vang-giam-ap-luc-van-rat-lon.jpg?randTime=1712218761)
+![Tỷ giá ngoại tệ, tỷ giá USD/VND hôm nay 4/4: USD &#39;lao đao&#39;, vì sao ...](https://cdn.baoquocte.vn/stores/news_dataimages/hoangha/082020/11/07/in_social/ty-gia-usd-hom-nay-118-dong-usd-neo-o-nguong-cao-nhat-1-tuan-do-gia-vang-giam-ap-luc-van-rat-lon.jpg?randTime=1712220979)
 
 Theo ghi nhận của TG&amp;VN lúc 7h ngày 4/4, chỉ số Dollar Index (DXY), đo lường đồng USD với 6 đồng tiền chủ chốt (EUR, JPY, GBP, CAD, SEK, CHF) ở mức 104,23, giảm&nbsp;...
 
 Bảng cập nhật tỷ giá ngoại tệ - tỷ giá USD Vietcombank hôm nay
 
-1. VCB - Cập nhật: 04/04/2024 14:58 - Thời gian website nguồn cung cấp Ngoại tệ Mua Bán Tên Mã Tiền mặt Chuyển khoản AUSTRALIAN DOLLAR AUD 15,977.51 16,138.90 16,657.10 CANADIAN DOLLAR CAD 17,996.94 18,178.73 18,762.43 SWISS FRANC CHF 26,952.56 27,224.81 28,098.97 YUAN RENMINBI CNY 3,381.16 3,415.31 3,525.51 DANISH KRONE DKK - 3,561.30 3,697.77 EURO EUR 26,363.98 26,630.28 27,810.30 POUND STERLING GBP 30,772.57 31,083.41 32,081.46 HONGKONG DOLLAR HKD 3,108.53 3,139.93 3,240.75 INDIAN RUPEE INR - 298.40 310.33 YEN JPY 159.70 161.31 169.02 KOREAN WON KRW 16.04 17.83 19.44 KUWAITI DINAR KWD - 80,976.26 84,215.85 MALAYSIAN RINGGIT MYR - 5,214.90 5,328.78 NORWEGIAN KRONER NOK - 2,282.58 2,379.55 RUSSIAN RUBLE RUB - 257.45 285.01 SAUDI RIAL SAR - 6,639.35 6,904.96 SWEDISH KRONA SEK - 2,298.34 2,395.99 SINGAPORE DOLLAR SGD 18,051.68 18,234.02 18,819.49 THAILAND BAHT THB 603.01 670.01 695.68 US DOLLAR USD 24,770.00 24,800.00 25,140.00
+1. VCB - Cập nhật: 04/04/2024 15:28 - Thời gian website nguồn cung cấp Ngoại tệ Mua Bán Tên Mã Tiền mặt Chuyển khoản AUSTRALIAN DOLLAR AUD 15,977.51 16,138.90 16,657.10 CANADIAN DOLLAR CAD 17,996.94 18,178.73 18,762.43 SWISS FRANC CHF 26,952.56 27,224.81 28,098.97 YUAN RENMINBI CNY 3,381.16 3,415.31 3,525.51 DANISH KRONE DKK - 3,561.30 3,697.77 EURO EUR 26,363.98 26,630.28 27,810.30 POUND STERLING GBP 30,772.57 31,083.41 32,081.46 HONGKONG DOLLAR HKD 3,108.53 3,139.93 3,240.75 INDIAN RUPEE INR - 298.40 310.33 YEN JPY 159.70 161.31 169.02 KOREAN WON KRW 16.04 17.83 19.44 KUWAITI DINAR KWD - 80,976.26 84,215.85 MALAYSIAN RINGGIT MYR - 5,214.90 5,328.78 NORWEGIAN KRONER NOK - 2,282.58 2,379.55 RUSSIAN RUBLE RUB - 257.45 285.01 SAUDI RIAL SAR - 6,639.35 6,904.96 SWEDISH KRONA SEK - 2,298.34 2,395.99 SINGAPORE DOLLAR SGD 18,051.68 18,234.02 18,819.49 THAILAND BAHT THB 603.01 670.01 695.68 US DOLLAR USD 24,770.00 24,800.00 25,140.00
 
 Tỷ giá ngoại tệ hôm nay 4/4
 
