@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  " [Morgen ist auch noch ein Tag] Paola Cortellesis Film "Morgen ist auch noch ein Tag" brach in ..."
+title:  " [Morgen ist auch noch ein Tag] Paola Cortellesis Film 'Morgen ist auch noch ein Tag' brach in ..."
 date:   Wed, 03 Apr 2024 10:00:00 +0200
 categories: entries DE
 ---

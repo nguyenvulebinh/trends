@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  " [Nguyễn Phương Hằng] Bị cáo Nguyễn Phương Hằng: "Tôi rất ân hận""
+title:  " [Nguyễn Phương Hằng] Bị cáo Nguyễn Phương Hằng: 'Tôi rất ân hận'"
 date:   Thu, 04 Apr 2024 13:00:00 +0700
 categories: entries VN
 ---

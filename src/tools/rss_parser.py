@@ -35,12 +35,12 @@ def convert_entry_to_md(entry, geo):
         hot_rate = '🔥🔥🔥🔥'
 
     # convert escape characters to unicode
-    item_title = html.unescape(entry['ht_news_item_title'])
+    item_title = html.unescape(entry['ht_news_item_title']).replace('"', "'")
 
     md = f"""---
 layout: post
-title:  "{hot_rate} [{entry.title}] {item_title}"
-date:   {entry.published}
+title: "{hot_rate} [{entry.title}] {item_title}"
+date: {entry.published}
 categories: entries {geo}
 ---
 """

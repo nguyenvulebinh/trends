@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  " [Petr Bystron] "Voice of Europe": Petr Bystron dementiert Annahme von Zahlungen ..."
+title:  " [Petr Bystron] 'Voice of Europe': Petr Bystron dementiert Annahme von Zahlungen ..."
 date:   Thu, 04 Apr 2024 12:00:00 +0200
 categories: entries DE
 ---
