@@ -27,7 +27,7 @@ categories: entries
 
     # file title (remove tone) include date and title in camel case
     file_title = time.strftime("%Y-%m-%d", entry.published_parsed) + '-' + unidecode(entry['title']).replace(' ', '-').lower() + ".md"
-    return file_title, md
+    return file_title.replace('/', '-'), md
 
 if __name__ == "__main__":
     d = feedparser.parse(rss_config['RSS_URL'])
