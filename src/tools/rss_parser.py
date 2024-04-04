@@ -3,6 +3,7 @@ import time
 from dotenv import dotenv_values
 from unidecode import unidecode
 import os
+import traceback
 rss_config = dotenv_values('.env_rss')
 
 def convert_entry_to_md(entry):
@@ -33,12 +34,17 @@ if __name__ == "__main__":
     d = feedparser.parse(rss_config['RSS_URL'])
     count = 0
     for i, entry in enumerate(d.entries):
-        title, content = convert_entry_to_md(entry)
-        if os.path.exists(os.path.join(rss_config['RSS_SAVE_PATH'], title)):
-            print(f"File {title} already exists")
-            continue
-        with open(os.path.join(rss_config['RSS_SAVE_PATH'], title), 'w') as f:
-            f.write(content)
-            count += 1
-        print(f"File {title} created")
+        try:
+            title, content = convert_entry_to_md(entry)
+            if os.path.exists(os.path.join(rss_config['RSS_SAVE_PATH'], title)):
+                print(f"File {title} already exists")
+                continue
+            with open(os.path.join(rss_config['RSS_SAVE_PATH'], title), 'w') as f:
+                f.write(content)
+                count += 1
+            print(f"File {title} created")
+        except:
+            traceback.print_exc()
+            print(f"Error in creating file {title}")
+
     print(f"Total {count} files created")
