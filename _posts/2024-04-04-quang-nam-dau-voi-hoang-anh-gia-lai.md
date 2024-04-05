@@ -1,5 +1,29 @@
 ---
 layout: post
+title: "🔥🔥 [Quảng Nam đấu với Hoàng Anh Gia Lai]  Hoang Anh Gia Lai draws with Quang Nam, the top-four race remains...
+date: Thu, 04 Apr 2024 17 00 00 +0700
+categories: entries VN llm
+---
+[ Hoang Anh Gia Lai draws with Quang Nam, the top-four race remains...](https://laodong.vn/bong-da/hoang-anh-gia-lai-chia-diem-quang-nam-cuoc-dua-tru-hang-van-kho-luong-1323396.ldo)
+
+> The upcoming round 15 match of V.League 2023-2024 features Quang Nam facing Hoang Anh Gia Lai at Hoa Xuan Stadium. Currently, Quang Nam ranks 11th with 15 points, while Hoang Anh Gia Lai is just one point behind. Both teams are determined to win to avoid relegation. In the previous round, both teams drew their matches 0-0. Quang Nam will be at a disadvantage as they will miss their key striker Ngân Văn Đại due to suspension, while Hoang Anh Gia Lai will miss Trần Thanh Sơn due to three yellow cards. However, Hoang Anh Gia Lai's coach is not too concerned as there are replacement players available.
+
+![ Hoang Anh Gia Lai draws with Quang Nam, the top-four race remains...](https://media-cdn-v2.laodong.vn/storage/newsportal/2024/4/4/1323396/HAGL-QN.jpg?w=800&h=420&crop=auto&scale=both)
+
+ The earliest match of round 15 of V.League 2023-2024 is the confrontation between Quang Nam and Hoang Anh Gia Lai at Hoa Xuan Stadium. Currently, Quang Nam's team is ranked 11th with 15 points, just one point more than Hoang Anh Gia Lai's team. Therefore, the result of the upcoming match will directly affect the standings and the relegation battle in this season. Of course, both Quang Nam and Hoang Anh Gia Lai do not want to stumble in this match.
+
+In the previous round, Quang Nam drew 0-0 at home, missing a good opportunity to escape from the bottom group. Meanwhile, Hoang Anh Gia Lai is still struggling in the relegation zone after drawing 0-0 with Khánh Hòa at home in the last round.
+
+Quang Nam faces a tough challenge in round 15 of V.League. Photo: QNFC
+
+In this direct confrontation, Quang Nam has a significant disadvantage as they will not have the services of their key striker Ngân Văn Đại, who is suspended for two matches due to serious foul play in the previous match. Therefore, coach Văn Sỹ Sơn needs to arrange the formation wisely to ensure the strength of the team.
+
+On the other hand, Hoang Anh Gia Lai will also miss Trần Thanh Sơn, who is suspended for three yellow cards. However, coach Vũ Tiến Thành is not too worried because there are still some replacement players in that position.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Quảng Nam đấu với Hoàng Anh Gia Lai] Hoàng Anh Gia Lai chia điểm Quảng Nam, cuộc đua trụ hạng vẫn ..."
 date: Thu, 04 Apr 2024 17:00:00 +0700
 categories: entries VN
@@ -94,3 +118,5 @@ Vì thế, huấn luyện viên Văn Sỹ Sơn cần có sự sắp xếp đội
 
 Phía bên kia, Hoàng Anh Gia Lai cũng thiếu vắng Trần Thanh Sơn bị treo giò vì 3 thẻ vàng. Dẫu vậy, ông Vũ Tiến Thành không quá lo lắng bởi vẫn còn một số nhân sự thay thế ở vị trí này.
 
+
+</details>

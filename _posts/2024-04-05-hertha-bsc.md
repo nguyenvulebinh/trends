@@ -1,5 +1,38 @@
 ---
 layout: post
+title: "🔥🔥 [Hertha BSC]  Bitter home defeat: SC Paderborn loses 2:3 against Hertha BSC Berlin
+date: Fri, 05 Apr 2024 21 00 00 +0200
+categories: entries DE llm
+---
+[ Bitter home defeat: SC Paderborn loses 2:3 against Hertha BSC Berlin](https://www.nw.de/sport/sc_paderborn_07/23822860_Bittere-Heimpleite-SC-Paderborn-verliert-2-3-gegen-Hertha-BSC-Berlin.html)
+
+> SC Paderborn, coached by Lukas Kwasniok, suffered a disappointing 2:3 (1:1) loss against Hertha in a home game, despite dominating the match with clear advantages and numerous chances. The team made three changes to the starting lineup due to suspensions and injuries. Coach Kwasniok praised the team's performance for 75 minutes but expressed disappointment over two late goals conceded. Striker Filip Bilbija shared similar sentiments, citing missed opportunities and a lack of self-confidence in decisive moments. The game was evenly matched in the first half, with Paderborn missing several chances to score. In the second half, SC Paderborn took the lead with a goal from Musliu but conceded two late goals, one through a VAR decision, resulting in their third consecutive league defeat. SCP sporting director Benjamin Weber described the outcome as brutal, while Hertha coach Pal Dardai apologized for winning the game in such a manner.
+
+![ Bitter home defeat: SC Paderborn loses 2:3 against Hertha BSC Berlin](https://www.nw.de/_em_daten/202668576/_/1xNW1QbnBDWFZKbkpSQXQ3OWptY1VwckJLckRxZ1ArR0RmbTJValN2SGY0TDZxQVpTMGIxK0ZmVldVSTBoc1poYWxFeTE4c2oyZ24wdWlWMjhkOVNWbjBjbkdxT2JFeG8zd0VUUHhZTXB0aU09/240405-2127-466610343.jpg)
+
+ Paderborn. The SC Paderborn finds itself in the midst of a results crisis. In the home game against Hertha, the team of coach Lukas Kwasniok showed a strong performance on Friday evening. However, despite clear dominance, the SCP lost the game 2:3 (1:1) in front of 15,000 spectators in the sold-out Home-Deluxe-Arena due to two late goals conceded. It doesn't get any more bitter than this.
+
+"For 75 minutes, it was our best game of the season. That was the maximum," coach Lukas Kwasniok assessed. However, what followed, he summarized as follows: "Football is beautiful, but it isn't always fair." Striker Filip Bilbija had this to say: "We can actually be proud of how we played. But when things aren't going well, something seems to be missing in the decisive situations. The self-confidence in our actions just isn't there."
+
+Paderborn's team entered the game with three changes in the starting lineup. Koen Kostons replaced the suspended Adriano Grimaldi, Kai Klefisch came in for the injured Mattes Hansen, and David Kinsombi surprisingly started on the bench. Calvin Brackelmann took his place in the starting formation. The first half was very entertaining, with Paderborn impressing in almost every aspect.
+
+However, there was one flaw: the conversion of chances was poor. On the other hand, two free kicks by the SCP were flawless. First, Brackelmann's shot hit the crossbar, and then Conteh's attempt was saved by Hertha's goalkeeper. In minute 59, the long-awaited 2:1 finally fell. Musliu headed a sharp corner from Aaron Zehnter into the net.
+
+SCP talent Jascha Brandt made his second league debut in the 67th minute, replacing Bilbija. Ilyas Ansah came on for Conteh at the same time. Hertha had to take action, but their offensive efforts remained half-hearted. The SCP continued to dominate the game even after taking the lead again.
+
+Goals from nowhere
+However, the capital side managed to score almost out of nowhere in the 86th minute. Hertha substitute Bilal Hussein equalized to 2:2. Referee Martin Petersen initially ruled that the ball had been out of play before, but was corrected by the VAR.
+
+And it got even worse for Paderborn. The recently substituted Jannis Heuer lost his duel against Ibrahim Maza, who then passed into the middle. Hertha's previously uninvolved striker Haris Tabakovic scored the 2:3 (90th minute). The game had been turned on its head. Despite his tireless efforts, Klaas missed the last big scoring chance in the seventh minute of injury time. Then it was time to go home. After the third league defeat in a row, there was pure disbelief at SC Paderborn.
+
+"The story of this game is brutal. We were clearly better," lamented SCP sporting director Benjamin Weber. Hertha coach Pal Dardai explained during the press conference: "I just apologized to my colleague for winning the game like this."
+
+You can find a detailed match report in our NW ticker here: [link to the original article]
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Hertha BSC] Bittere Heimpleite: SC Paderborn verliert 2:3 gegen Hertha BSC Berlin"
 date: Fri, 05 Apr 2024 21:00:00 +0200
 categories: entries DE
@@ -40,3 +73,5 @@ Und es kam noch schlimmer für den SCP. Der kurz zuvor eingewechselte Jannis Heu
 
 Hier gibt es das Spiel zum Nachlesen im NW-Ticker:
 
+
+</details>

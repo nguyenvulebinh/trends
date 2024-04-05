@@ -1,5 +1,21 @@
 ---
 layout: post
+title: "🔥🔥 [Vingegaard]  Cycling - Horror crash at Tour of the Basque Country - Concern for ...
+date: Thu, 04 Apr 2024 21 00 00 +0200
+categories: entries DE llm
+---
+[ Cycling - Horror crash at Tour of the Basque Country - Concern for ...](https://www.schwarzwaelder-bote.de/inhalt.radsport-drama-um-vingegaard-und-co-bei-der-baskenland-rundfahrt.3b5cac6f-5201-44ba-b551-bce68d140c60.html)
+
+> During the Tour of the Basque Country, a severe crash resulted in injuries to several cyclists including Tour de France winner Jonas Vingegaard and Belgian time trial world champion Remco Evenepoel. Vingegaard suffered a collarbone fracture and multiple rib fractures, while Evenepoel broke his collarbone and sustained a shoulder blade fracture. Both riders were hospitalized and will undergo further medical examinations. Australian cyclist Jay Vine also suffered significant injuries, including a cervical vertebra fracture and two broken thoracic vertebrae. The race was neutralized after the crash, with South African Luis Meintjes winning the stage. Many top cyclists use this race as preparation for major summer tours. This crash comes just a week after Belgian star Wout van Aert suffered multiple rib fractures and a collarbone break during the Quer through Flanders. Additionally, a training accident on Tenerife involving German hopeful Lennard Kämna resulted in multiple injuries, but he is in stable condition.
+
+![ Cycling - Horror crash at Tour of the Basque Country - Concern for ...](https://www.schwarzwaelder-bote.de/media.media.05864373-b3bb-4a93-93e4-1b9b3cd26a1c.16x9_1024.jpg)
+
+ Several cycling stars are injured in a severe crash during the Tour of the Basque Country. Tour de France winner Vingegaard is taken away in an ambulance. Vingegaard was diagnosed with a collarbone fracture and multiple rib fractures. He will remain in the hospital for observation. Evenepoel, the Belgian time trial world champion, also had to be hospitalized after the crash. He broke his collarbone and sustained a shoulder blade fracture. Evenepoel will undergo surgery in Belgium and have further medical examinations. Giro d'Italia winner Roglic, who was wearing the yellow jersey, managed to leave the accident site in the team car of the German Bora-hansgrohe team. Roglic was previously involved in a crash on Wednesday. However, his team later reported that no bones were broken during the examination at the hospital. The crash occurred about 35 kilometers before the finish line in Legutio, in a right turn. Tesfatsion from Eritrea was the first to slip, followed by around a dozen other riders. Vingegaard, several top riders, and Australian cyclist Jay Vine were among those severely injured. Vine suffered a cervical vertebra fracture and two broken thoracic vertebrae. However, there are no neurological problems, severe injuries, or skull damage. Vine will remain in the hospital for neurological observation and await orthopedic assessment of his spine and further treatment. The race was neutralized after the crash, with the remaining riders slowly making their way to the finish line. The South African Luis Meintjes won the stage, which had no impact on the overall standings. Many top cyclists use the Tour of the Basque Country as preparation for the major tours in the summer. However, two-time Tour de France winner Tadej Pogacar was not present at the race. The cycling world has been overshadowed by another severe crash just a week after Belgian star Wout van Aert suffered multiple rib fractures and a collarbone break during the Quer through Flanders in late March. Van Aert will be out for several weeks. In addition, a training accident on Tenerife involving German hopeful Lennard Kämna shocked the Bora team. The 27-year-old Bremen native suffered multiple injuries but is in stable condition. He is conscious, responsive, and can communicate. Kämna will be closely monitored in the hospital's intensive care unit. According to the German team, an oncoming vehicle took Kämna's priority when turning.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Vingegaard] Radsport - Horror-Crash bei Baskenland-Rundfahrt - Sorge um ..."
 date: Thu, 04 Apr 2024 21:00:00 +0200
 categories: entries DE
@@ -42,3 +58,5 @@ Schock fürs deutsche Team
 
 Dazu schockte ein Trainingsunfall des deutschen Hoffnungsträgers Lennard Kämna am Mittwoch auf Teneriffa das deutsche Bora-Team. Der 27 Jahre alte Bremer erlitt dabei zahlreiche Verletzungen, befinde sich aber in stabilem Zustand, hatte sein Rennstall mitgeteilt. "Er ist wach, ansprechbar und kann kommunizieren. (...) Er wird im Krankenhaus auf Teneriffa sehr gut versorgt und wird in den kommenden Tagen auf der Intensivstation überwacht. Mitglieder der Familie sowie des Teams sind bei ihm", hieß es weiter. Nach Angaben des deutschen Rennstalls habe ein entgegenkommendes Fahrzeug beim Abbiegen Kämna die Vorfahrt genommen.
 
+
+</details>

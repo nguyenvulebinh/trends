@@ -1,5 +1,27 @@
 ---
 layout: post
+title: " [The First Omen]  Why did "The First Omen" movie have such a terrifying 18+ scene that made parents shudder...?
+date: Fri, 05 Apr 2024 20 00 00 +0700
+categories: entries VN llm
+---
+[ Why did "The First Omen" movie have such a terrifying 18+ scene that made parents shudder...?](https://kenh14.vn/sao-nu-co-canh-18-kinh-hoang-den-muc-khien-bo-ngat-xiu-ngay-giua-rap-20240405150048457.chn)
+
+> Nell Tiger Free, the lead actress in the horror film "The First Omen - The Prophecy of the Demon," shared with People magazine that her parents supported her decision to take on the role despite not being fans of the genre. The film contains many 18+ scenes and has caused quite a stir due to its graphic content, including a shocking birthing scene that made Free's father pass out during the screening. The actress' character, Margaret, is an American woman who experiences strange occurrences at a new orphanage in Rome, leading her to uncover a complex source of evil. The film underwent censorship five times before its release due to its disturbing content.
+
+![ Why did "The First Omen" movie have such a terrifying 18+ scene that made parents shudder...?](https://kenh14cdn.com/zoom/600_315/203336854389633024/2024/4/5/photo1712303882268-1712303884293950925256.gif.png)
+
+ Sharing with People magazine, the lead actress of The First Omen - Nell Tiger Free revealed that she received full support from her parents for this major role, even though neither of them are...
+Currently, the horror film titled The First Omen - The Prophecy of the Demon is making audiences in Vietnam and around the world shudder. This dark fantasy, horror project has many 18+ scenes that are rarely shown uncut or obscured on screen. In fact, the family of the lead actress also had an "unforgettable" experience when they first watched the film in the theater.
+Sharing with People, the lead actress of The First Omen - Nell Tiger Free revealed that she received full support from her parents for this major role, even though neither of them are fans of horror films. Free shared, "My mom doesn't like watching horror movies. She has a very weak heart, so she had to sit next to me during the screening. I remember having many handprints on my body because she was squeezing my hand throughout the entire film."
+The actress's mother is quite brave until the end, while her father is more nervous than anyone else. "My dad passed out right when I gave birth to the baby. After that, he calmed down. He has diabetes and had to sit there catching his breath. He even demanded a Mars chocolate bar! Meanwhile, my mom was shouting 'Really? Now, when our daughter is giving birth? Really?'" Free laughed and cried while sharing.
+The frightening birthing scene of Nell Tiger Free made her father pass out.
+Nevertheless, receiving support from her parents and becoming the "backbone" has made the actress feel warm and happy. In The First Omen, Nell Tiger Free plays the role of American woman Margaret who is sent to Rome, Italy. At the new orphanage, Margaret gradually experiences strange things, from supernatural signs to people around her being killed in mysterious ways. Everything seems to originate from a little girl named Carlita, but the source of evil is more complicated than it seems.
+In The First Omen, there are many horror film scenes, some even featuring "corpse-related" elements that are quite shocking. Besides the lead actress's birthing scene, the film also contains other terrifying scenes, making the censorship process take place 5 times before it can be released in theaters.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [The First Omen] Sao nữ The First Omen có cảnh 18+ kinh hoàng đến mức bố ngất ..."
 date: Fri, 05 Apr 2024 20:00:00 +0700
 categories: entries VN
@@ -24,3 +46,5 @@ Tuy vậy, việc được bố mẹ ủng hộ, trở thành "hậu phương" k
 
 Trong The First Omen, có nhiều cảnh phim kinh dị, thậm chí khiến khán giả sốc nặng vì mang yếu tố "hành xác". Bên cạnh cảnh sinh con của nữ chính, phim còn có nhiều cảnh kinh hoàng khác, khiến việc kiểm duyệt được thực hiện tận 5 lần mới có thể ra rạp.
 
+
+</details>
