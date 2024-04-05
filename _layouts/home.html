@@ -9,10 +9,10 @@ layout: default
 
   {{ content }}
 
-  {%- if paginator.posts.size > 0 -%}
+  {%- if site.posts.size > 0 -%}
     <h2 class="post-list-heading">{{ page.list_title | default: "Posts" }}</h2>
     <ul class="post-list">
-      {%- for post in paginator.posts -%}
+      {%- for post in site.posts -%}
       <li>
         {%- assign date_format = site.minima.date_format | default: "%b %-d, %Y" -%}
         <span class="post-meta">{{ post.date | date: date_format }}</span>
@@ -27,16 +27,6 @@ layout: default
       </li>
       {%- endfor -%}
     </ul>
-
-    <!-- Pagination links -->
-    <div class="pagination">
-      {%- if paginator.previous_page -%}
-        <a href="{{ paginator.previous_page_path | prepend: site.baseurl | replace: '//', '/' }}" class="previous">Previous</a>
-      {%- endif -%}
-      {%- if paginator.next_page -%}
-        <a href="{{ paginator.next_page_path | prepend: site.baseurl | replace: '//', '/' }}" class="next">Next</a>
-      {%- endif -%}
-    </div>
   {%- endif -%}
 
 </div>
