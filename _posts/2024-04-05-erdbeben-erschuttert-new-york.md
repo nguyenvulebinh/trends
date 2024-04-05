@@ -1,33 +1,5 @@
 ---
 layout: post
-title: "🔥🔥🔥 [Erdbeben erschüttert New York]  Earthquake shakes region New York
-date: Fri, 05 Apr 2024 19 00 00 +0200
-categories: entries DE llm
----
-[ Earthquake shakes region New York](https://www.zdf.de/nachrichten/panorama/new-york-erdbeben-usa-100.html)
-
-> An earthquake with an initial magnitude of 4.8, as reported by the USGS, has struck the New York metropolitan area, with its epicenter located in New Jersey, about 65 kilometers from New York. The quake was felt as a light rumbling in Manhattan and caused tremors along the East Coast. No initial reports of injuries or damage have been made, and New York City's Disaster Management Agency is monitoring the situation. Mayor Eric Adams has been informed, and various landmarks like the Empire State Building have reported no issues. The quake interrupted a UN Security Council meeting, where Janti Soeripto of Save the Children asked if it was an earthquake. Tectonic plates' movement and their sudden tension release cause earthquakes.
-
-![ Earthquake shakes region New York](https://www.zdf.de/assets/new-york-erdbeben-100~1280x720?cb=1712336405894)
-
- An earthquake has shaken the densely populated metropolitan region of New York. The US Geological Survey (USGS) initially announced a magnitude of 4.8 for the quake, which occurred at a depth of around five kilometers. There were no initial reports of injuries or damage. The epicenter was located in the U.S. state of New Jersey, approximately 65 kilometers from New York. The quake was felt as a light rumbling in Manhattan.
-
-A UN Security Council meeting on the situation in Gaza was briefly interrupted when Janti Soeripto of Save the Children, who was speaking at the time, asked, "Is that an earthquake?" Shortly thereafter, emergency alerts confirming the quake were sent to many diplomats' mobile phones.
-
-Tectonic plates in the Earth's crust are constantly in motion and can become locked, building up immense tension. When this tension is suddenly released, the ground shakes.
-
-Some residents along the East Coast reported feeling the tremors. The New York City Disaster Management Agency stated that it had not received any damage reports but was continuing to monitor the situation. "New Yorkers should continue their activities as usual," the agency wrote on X, formerly known as Twitter.
-
-New York Mayor Eric Adams has been informed about the quake, according to his spokesperson Fabien Levy. They are currently evaluating the consequences, although no reports of significant impacts have been received so far. In Manhattan's city center, drivers honked their horns as the streets shook briefly. Residents in Brooklyn heard a loud rumbling sound and felt building vibrations.
-
-The Moment Magnitude Scale measures the strength of an earthquake. One of New York's landmarks, the Empire State Building, has already given the all-clear: "I am fine," the official account posted on X, formerly known as Twitter.
-
-[Note: The last part of the text contains a button for loading Twitter content, which I cannot reproduce here. The English translation provided is based solely on the German text provided.]
-
-<details>
-  <summary>Origin content</summary>
-  ---
-layout: post
 title: "🔥🔥🔥 [Erdbeben erschüttert New York] Erdbeben erschüttert Region New York"
 date: Fri, 05 Apr 2024 19:00:00 +0200
 categories: entries DE
@@ -62,5 +34,3 @@ Eines von New Yorks Wahrzeichen meldete bereits Entwarnung: "Mir geht es gut", s
 
 Mitteilung des Empire State Buildings auf X Ein Klick für den Datenschutz Erst wenn Sie hier klicken, werden Bilder und andere Daten von Twitter nachgeladen. Ihre IP-Adresse wird dabei an externe Server von Twitter übertragen. Über den Datenschutz dieses Social Media-Anbieters können Sie sich auf der Seite von Twitter informieren. Um Ihre künftigen Besuche zu erleichtern, speichern wir Ihre Zustimmung in den Datenschutzeinstellungen . Ihre Zustimmung können Sie im Bereich „Meine News“ jederzeit widerrufen. Twitter-Inhalte anzeigen Datenschutzeinstellungen anpassen
 
-
-</details>
