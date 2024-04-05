@@ -1,40 +1,5 @@
 ---
 layout: post
-title: "🔥🔥🔥 [Abha đấu với Al-Nassr]  Result Abha 0-8 Al Nassr: Ronaldo scores hat-trick for the second consecutive match
-date: Wed, 03 Apr 2024 02 00 00 +0700
-categories: entries VN llm
----
-[ Result Abha 0-8 Al Nassr: Ronaldo scores hat-trick for the second consecutive match](https://bongdaplus.vn/bong-da-the-gioi/ket-qua-abha-vs-al-nassr-ronaldo-lap-hat-trick-thu-2-lien-tiep-4269892404.html)
-
-> In a Saudi Pro League 2023/24 match, Al Nassr won 8-0 against Abha with Cristiano Ronaldo scoring a hat-trick (11', 21', 42') and providing assists. Other scorers for Al Nassr included Mane (33'), Al Sulaiheem (44'), Ghareeb (51'), and Al Aliwa (63', 86'). The victory, Al Nassr's third consecutive win, strengthened their second-place position in the league with 62 points, trailing leaders Al Hilal by 12 points. Abha remained at the bottom of the table.
-
-![ Result Abha 0-8 Al Nassr: Ronaldo scores hat-trick for the second consecutive match](https://cdn.bongdaplus.vn/Assets/Media/2024/04/03/8/Abha-Al-Nassr-0-8.jpg)
-
- In the match between Abha and Al Nassr in round 26 of the Saudi Pro League 2023/24, the visiting team had a resounding 8-0 victory, with the highlight being Cristiano Ronaldo's hat-trick.
-
-Scorers:
-Al Nassr: Ronaldo (11', 21', 42'), Mane (33'), Al Sulaiheem (44'), Ghareeb (51'), Al Aliwa (63', 86')
-
-Video: Abha 0-8 Al Nassr
-
-Just a few days ago, Ronaldo scored a hat-trick to help Al Nassr defeat Al Taee with a score of 5-1. Clearly, stopping Al Nassr (who had won two consecutive matches before facing Al Abha) and a rampant Ronaldo (who had scored in three consecutive matches for Al Nassr previously) is a challenge for the Al Abha defense.
-
-Facing an opponent at the bottom of the table, even as the away team, Al Nassr was determined to win all three points at any cost. As early as the 11th minute, Cristiano Ronaldo capitalized on a penalty kick to open the scoring for the visiting team.
-
-With the Al Nassr fans still ecstatic, Ronaldo scored another goal in the 21st minute and completed his hat-trick in the 42nd minute with an excellent shot that went over the opposing goalkeeper's head. In between those goals, CR7 also provided assists for Mane (33') and Al Sulaiheem (44'), helping Al Nassr take a commanding 5-0 lead at halftime.
-
-In the second half, despite Ronaldo being substituted early, Al Nassr continued to dominate Al Abha. As a result, the Saudi Pro League's top striker added three more goals through efforts from Ghareeb (51') and a double from Al Aliwa (63', 86'), completing a resounding 8-0 victory at Prince Sultan bin Abdul Aziz Stadium, securing an overall win in the match.
-
-After 26 rounds, Al Nassr has solidified their second-place position in the Saudi Pro League with 62 points, trailing league leaders Al Hilal by 12 points.
-
-Starting lineups:
-Abha: Tatarusanu, Al Jumayah, Al Sahafi, Tisserand, Al Zubaidi, Naji, Matic, Al Shammeri, Krychowiak, Al Kunaydiri, Kamano
-Al Nassr: Ospina, Telles, Laporte, Al Fatil, Boushal, Al Sulaiheem, Otavio, Ghareeb, Al Najei, Mane, Ronaldo
-
-<details>
-  <summary>Origin content</summary>
-  ---
-layout: post
 title:  "🔥🔥🔥 [Abha đấu với Al-Nassr] Kết quả Abha 0-8 Al Nassr: Ronaldo lập hat-trick thứ 2 liên tiếp"
 date:   Wed, 03 Apr 2024 02:00:00 +0700
 categories: entries VN
@@ -71,5 +36,3 @@ Abha: Tatarusanu, Al Jumayah, Al Sahafi, Tisserand, Al Zubaidi, Naji, Matic, Al 
 
 Al Nassr: Ospina, Telles, Laporte, Al Fatil, Boushal, Al Sulaiheem, Otavio, Ghareeb, Al Najei, Mane, Ronaldo
 
-
-</details>

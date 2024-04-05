@@ -1,33 +1,5 @@
 ---
 layout: post
-title: "🔥🔥 [Tết Thanh minh]  Tet Trung Thu - Celebrating the Mid-Autumn Festival - Thai Binh Online Newspaper
-date: Wed, 03 Apr 2024 12 00 00 +0700
-categories: entries VN llm
----
-[ Tet Trung Thu - Celebrating the Mid-Autumn Festival - Thai Binh Online Newspaper](https://baothaibinh.com.vn/tin-tuc/19/196499/tet-thanh-minh-huong-ve-nguon-coi)
-
-> The Tet Trung Nguyen, also known as the Cold Food Festival or Pure Brightness Festival, is a traditional Vietnamese holiday observed on the 15th day of the third lunar month, with the most recent celebration taking place on April 29, 2023. The festival has Chinese origins and is celebrated by many East Asian countries, including Vietnam. It is a time for families to honor their ancestors through various rituals and offerings, such as cleaning and decorating tombs, burning incense and paper money, and sharing a feast. The festival also serves as an opportunity for relatives to reunite and strengthen their bonds. Different families may have different interpretations of the festival's significance, but ultimately, it is a time for honoring ancestors, preserving traditional values, and fostering family unity.
-
-![ Tet Trung Thu - Celebrating the Mid-Autumn Festival - Thai Binh Online Newspaper](https://media.baothaibinh.com.vn/upload/news/4_2024/tet_thanh_minh_huong_ve_nguon_coi_11134304042024.jpg)
-
- The Tet Trung Nguyen, also known as the Cold Food Festival or the Pure Brightness Festival, is a traditional Vietnamese holiday that falls on the 15th day of the third lunar month. This year, it was celebrated on April 29, 2023. The festival has its roots in ancient China and is observed by many East Asian countries, including Vietnam.
-
-The Tet Trung Nguyen is a time for families to honor their ancestors and pay respects to their tombs. It is also an opportunity for relatives to gather and strengthen their bonds. In some families, the festival is celebrated with elaborate rituals and offerings, while others may opt for simpler observances.
-
-In Vietnam, many people visit cemeteries and ancestral tombs to clean and decorate them with flowers, incense, and other offerings. They also burn incense and paper money as a way of sending blessings and material goods to their ancestors in the afterlife. After paying respects to their ancestors, families often gather at home for a feast and to share stories and memories.
-
-For some families, the Tet Trung Nguyen is an opportunity to connect with relatives who live far away. This was the case for Ms. Nguyen Thi Hoa, a resident of Tay Ninh commune (Tien Hai), who brought her two children, currently studying and living in Hanoi, back to their hometown to pay respects to their ancestors.
-
-Meanwhile, Mr. Pham Thanh Ngoc, a resident of Ho Chi Minh City, took his parents to Kiến Xương townlet to pay respects to their ancestors and enjoy a family reunion. He shared that the Tet Trung Nguyen was an important occasion for his family to gather and strengthen their bonds, as well as to honor their ancestors.
-
-Similarly, Mr. Dang Dinh Dung, the head of the Dang clan in An De village, Xa Hiep Hoa (Vu Thua), noted that the Tet Trung Nguyen was a time for family members from all over the country to gather and pay respects to their ancestors. He added that this tradition helped preserve the values and identity of the Dang clan.
-
-Although the Tet Trung Nguyen may have different meanings for different families, it is ultimately a time for honoring ancestors, strengthening family bonds, and preserving traditional values. As such, it remains an important part of Vietnamese culture and continues to be celebrated with enthusiasm and reverence.
-
-<details>
-  <summary>Origin content</summary>
-  ---
-layout: post
 title:  "🔥🔥 [Tết Thanh minh] Tết Thanh minh - hướng về nguồn cội - Báo Thái Bình điện tử"
 date:   Wed, 03 Apr 2024 12:00:00 +0700
 categories: entries VN
@@ -58,5 +30,3 @@ Con cháu dòng họ Đặng hương tổ tiên trong ngày tết Thanh minh.
 
 Tú Anh
 
-
-</details>

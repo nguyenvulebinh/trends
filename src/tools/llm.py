@@ -1,11 +1,12 @@
 import os
-from langchain_community.llms.huggingface_text_gen_inference import HuggingFaceTextGenInference
+from langchain_community.chat_models import ChatOllama
 from dotenv import load_dotenv
 load_dotenv('.env')
 
 def get_default_llm_model(temperature=0.5, stop_sequences=[]):
-    return HuggingFaceTextGenInference(
-        inference_server_url=os.environ['LLM_API'],
+    return ChatOllama(
+        base_url=os.environ['LLM_API'],
+        model=os.environ['MODEL'],
         temperature=temperature,
-        stop_sequences=stop_sequences
+        stop=stop_sequences
     )

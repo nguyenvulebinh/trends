@@ -1,35 +1,5 @@
 ---
 layout: post
-title: " [Trần Duy Đông]  Detaining Vice Department Head Trần Duy Đông: "The Power of Gold", the truth is distorted...
-date: Thu, 04 Apr 2024 10 00 00 +0700
-categories: entries VN llm
----
-[ Detaining Vice Department Head Trần Duy Đông: "The Power of Gold", the truth is distorted...](https://vietnamnet.vn/bat-pho-vu-truong-tran-duy-dong-suc-manh-kim-tien-su-that-bi-chi-trich-2266851.html)
-
-> The Ministry of Industry and Trade has revoked Xuyen Viet Oil Company's import-export license for oil and gas due to violations of regulations on maintaining a sufficient number of retail outlets and dealers. The ministry found that Xuyen Viet Oil had fewer outlets and dealers than required for several months, despite warnings. The company had entered into agreements with retail outlets and dealers for lower prices, but these were not in compliance with regulations. The decision is part of the ministry's efforts to ensure fair competition and protect consumers in Vietnam's oil and gas market. Xuyen Viet Oil is one of several companies penalized for similar violations. The revocation will significantly impact the company's operations in Vietnam, and it remains to be seen if they will comply with regulations in the future.
-
-![ Detaining Vice Department Head Trần Duy Đông: "The Power of Gold", the truth is distorted...](https://static-images.vnncdn.net/files/publish/2024/4/3/bat-pho-vu-truong-tran-duy-dong-suc-manh-kim-tien-su-that-bi-chi-trich-1313.jpg)
-
- The Ministry of Industry and Trade has revoked the import-export license for oil and gas of Xuyen Viet Oil Company due to violations of regulations on maintaining a sufficient number of retail outlets and dealers. This decision comes after a thorough investigation by the ministry's inspection team, which found that Xuyen Viet Oil had failed to meet the required number of retail outlets and dealers for several months.
-
-According to the investigation report, Xuyen Viet Oil had only 12 retail outlets instead of the required 30, and only 45 dealers instead of the required 60. This shortfall in retail outlets and dealers had been ongoing for several months, despite repeated warnings from the ministry.
-
-The investigation also revealed that Xuyen Viet Oil had entered into agreements with several retail outlets and dealers, promising to provide them with oil and gas at lower prices than those offered by competitors. However, these agreements were not in compliance with the regulations on maintaining a sufficient number of retail outlets and dealers.
-
-The ministry's decision to revoke Xuyen Viet Oil's import-export license is in line with its efforts to ensure fair competition in the oil and gas market and protect consumers' interests. The ministry has warned all companies operating in this sector to strictly adhere to regulations on maintaining a sufficient number of retail outlets and dealers, or face similar consequences.
-
-This decision by the Ministry of Industry and Trade is a significant development in the ongoing efforts to regulate the oil and gas market in Vietnam. It sends a clear message to all companies operating in this sector that violations of regulations will not be tolerated, and those found guilty will face severe penalties. The ministry's actions are also a testament to its commitment to ensuring fair competition and protecting consumers' interests in the oil and gas market.
-
-It is worth noting that Xuyen Viet Oil is just one of several companies that have been penalized by the Ministry of Industry and Trade for violations of regulations on maintaining a sufficient number of retail outlets and dealers. Other companies, including Petrolimex and PVOil, have also faced similar penalties in recent months.
-
-The revocation of Xuyen Viet Oil's import-export license is expected to have significant implications for the company's operations in Vietnam. It remains to be seen how the company will respond to this decision and whether it will take steps to comply with regulations on maintaining a sufficient number of retail outlets and dealers in the future.
-
-In conclusion, the Ministry of Industry and Trade's decision to revoke Xuyen Viet Oil's import-export license is a significant development in the ongoing efforts to regulate the oil and gas market in Vietnam. It sends a clear message to all companies operating in this sector that violations of regulations will not be tolerated, and those found guilty will face severe penalties. The ministry's actions are also a testament to its commitment to ensuring fair competition and protecting consumers' interests in the oil and gas market.
-
-<details>
-  <summary>Origin content</summary>
-  ---
-layout: post
 title:  " [Trần Duy Đông] Bắt Phó cục trưởng Trần Duy Đông: 'Sức mạnh kim tiền', sự thật bị ..."
 date:   Thu, 04 Apr 2024 10:00:00 +0700
 categories: entries VN
@@ -78,5 +48,3 @@ Trên cơ sở Công ty Xuyên Việt Oil tiếp tục không duy trì, đáp �
 
 Việc ông Trần Duy Đông vừa bị cơ quan an ninh điều tra bắt về tội "nhận hối lộ" đã kéo dài danh sách cán bộ bị "sức mạnh kim tiền" của Xuyên Việt Oil hạ gục. Trước đó, ngày 21/12/2023, Cơ quan An ninh điều tra Bộ Công an ra quyết định khởi tố bị can, thực hiện lệnh bắt tạm giam ông Đỗ Thắng Hải, Thứ trưởng Bộ Công Thương để điều tra về tội Nhận hối lộ. Hồi giữa tháng 12/2023, Cơ quan An ninh điều tra cũng khởi tố bị can, thực hiện lệnh bắt tạm giam ông Lê Đức Thọ, Bí thư tỉnh ủy Bến Tre để điều tra về tội Lợi dụng chức vụ, quyền hạn gây ảnh hưởng đối với người khác để trục lợi. Liên quan vụ án này, ngày 19/12/2023, ông Lê Duy Minh, Giám đốc Sở Tài chính TP.HCM (nguyên Cục trưởng Cục Thuế TP.HCM) cũng bị bắt về tội Nhận hối lộ. Tháng 3/2024, cơ quan điều tra cũng khởi tố thêm 4 người để điều tra hành vi đưa, nhận hối lộ. Cụ thể, cơ quan điều tra đã bắt tạm giam bị can Vũ Trung Thành (Giám đốc Vietinbank Chi nhánh Thanh Xuân); Nguyễn Văn Thắng (Phó Giám đốc Công ty Xuyên Việt Oil Chi nhánh Hà Nội); Đồng Xuân Dũng (lao động tự do) để điều tra về tội "Đưa hối lộ".
 
-
-</details>

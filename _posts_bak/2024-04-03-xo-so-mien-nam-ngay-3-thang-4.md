@@ -1,50 +1,5 @@
 ---
 layout: post
-title: " [Xổ số miền Nam ngày 3 tháng 4]  XSMN 3/4, today's Vietnam southern region lottery results 3/4/2024, XSMN...
-date: Wed, 03 Apr 2024 18 00 00 +0700
-categories: entries VN llm
----
-[ XSMN 3/4, today's Vietnam southern region lottery results 3/4/2024, XSMN...](https://thethaovanhoa.vn/xsmn-3-4-truc-tiep-xo-so-mien-nam-hom-nay-3-4-2024-ket-qua-xo-so-ngay-3-thang-4-20240402135456885.htm)
-
-> The text pertains to the Southern Vietnam Lottery (XSMN), providing information on its live broadcasts and results. The lottery is held in various provinces from Monday to Sunday, with draws starting at 16:10 local time. Users can search for lottery results using keywords such as xsmn, southern vietnam lottery, lottery numbers, sxmn, and today's lottery. The text also includes specific dates for recent and upcoming lottery results, including April 3, 2024. Additionally, it mentions the participating provinces in the Southern Vietnam Lottery.
-
-![ XSMN 3/4, today's Vietnam southern region lottery results 3/4/2024, XSMN...](https://thethaovanhoa.mediacdn.vn/thumb_w/1200/372676912336973824/2024/4/3/xsmn34-17121368325611779565636-0-0-359-639-crop-17121368495731512299544.jpg)
-
- XSMN 3/4. Southern Vietnam Lottery today. SXMN. Live broadcast of XSMN on April 3. Today's lottery results on April 3, 2024. XSMN Wednesday.
-XSMN 3/4. Southern Vietnam Lottery today. SXMN. Live broadcast of XSMN on April 3. Today's lottery results on April 3, 2024. XSMN Wednesday.
-XSMN 3/4: Follow the results of the Southern Vietnam Lottery today XSMN Wednesday, April 3, 2024, on Thethaovanhoa. The lottery draw is live at 16:15 every Wednesday.
-Lottery results of Southern Vietnam XSMN today 3/4/2024
-Lottery results of Southern Vietnam XSMN today 3/4/2024
-Refer to the XSMN results of recent draws
-Lottery results of Southern Vietnam XSMN today 2/4/2024
-Lottery results of Southern Vietnam XSMN today 2/4/2024
-Lottery results of Southern Vietnam XSMN April 1, 2024
-Lottery results of Southern Vietnam XSMN March 31, 2024
-Lottery results of Southern Vietnam XSMN March 30, 2024
-Lottery results of Southern Vietnam XSMN March 30, 2024
-Lottery results of Southern Vietnam XSMN March 29, 2024
-Lottery results of Southern Vietnam XSMN March 29, 2024
-Lottery results of Southern Vietnam XSMN March 28, 2024
-Lottery results of Southern Vietnam XSMN March 28, 2024
-Southern Vietnam Lottery (xsmn) includes the following provinces:
-Ho Chi Minh City Lottery (XSHCM), An Giang Lottery (XSAG), Bac Lieu Lottery (XSBL), ...
-Information about the construction of Southern Vietnam Lottery results
-Lottery opening time XSMN
-Monday: HCMC - Dong Thap - Ca Mau
-Tuesday: Ben Tre - Vung Tau - Bac Lieu
-Wednesday: Dong Nai - Can Tho - Soc Trang
-Thursday: Tay Ninh - An Giang - Binh Thuan
-Friday: Vinh Long - Binh Duong - Tra Vinh
-Saturday: HCMC - Long An - Binh Phuoc - Hau Giang
-Sunday: Tiền Giang - Kiên Giang - Đà Lạt
-Lottery draw time: starts from 16h10 every day. The results of each station will be announced at the draw venue of the province.
-Search keywords for Southern Vietnam Lottery:
-xsmn, xsmn 3/4/2024, southern vietnam lottery day 3 month 4, xsmn wednesday, xsmn, lottery, lotto, lottery numbers, sxmn, southern vietnam lottery, today lottery, xsmn today, sxmn today, lottery numbers, xsmn today, sxmn today, lottery numbers of the south, lottery numbers.
-
-<details>
-  <summary>Origin content</summary>
-  ---
-layout: post
 title:  " [Xổ số miền Nam ngày 3 tháng 4] XSMN 3/4, kết quả xổ số miền Nam hôm nay 3/4/2024, KQXSMN ..."
 date:   Wed, 03 Apr 2024 18:00:00 +0700
 categories: entries VN
@@ -117,5 +72,3 @@ Các từ khóa tra cứu xổ số miền nam:
 
 xsmn, xsmn 3/4/2024, xổ số miền nam ngày 3 tháng 4, xsmn thứ Tư, xsmn, xổ số, xo so, so xo, sxmn, xổ số miền nam, xổ số hôm nay, xsmn hôm nay, sxmn hôm nay, số miền nam, xsmn hom nay, sxmn hom nay, xo so mien nam, so xo mien nam, kq xsmn, kqxs miền nam.
 
-
-</details>

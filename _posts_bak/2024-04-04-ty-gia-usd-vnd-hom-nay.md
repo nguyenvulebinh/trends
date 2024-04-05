@@ -1,33 +1,5 @@
 ---
 layout: post
-title: " [Tỷ giá USD/VND hôm nay]  Exchange rate, USD/VND exchange rate today 4/4: USD 'falls', why ...
-date: Thu, 04 Apr 2024 11 00 00 +0700
-categories: entries VN llm
----
-[ Exchange rate, USD/VND exchange rate today 4/4: USD 'falls', why ...](https://baoquocte.vn/ty-gia-ngoai-te-ty-gia-usdvnd-hom-nay-44-usd-lao-dao-vi-sao-ty-gia-trong-nuoc-nong-hon-266508.html)
-
-> The US dollar weakened in early Asian trade on Tuesday, causing the Japanese yen to rise to 152 yen per dollar, close to a key psychological level. This came as US Federal Reserve officials emphasized the need for more data before cutting interest rates. The greenback had been fluctuating near its highest level since November 2022 due to positive economic data from the US, including a rebound in manufacturing activity and robust labor market. However, the Fed is expected to cut interest rates by around 75 basis points this year, less than their forecast. The Japanese yen slightly rebounded after plunging to a 34-year low due to the Bank of Japan's historic policy shift, but it remains under pressure due to rising US interest rates and near-zero interest rates in Japan. Japanese officials have intervened in the foreign exchange market to support the yen. Meanwhile, the euro and British pound gained against the dollar.
-
-![ Exchange rate, USD/VND exchange rate today 4/4: USD 'falls', why ...](https://cdn.baoquocte.vn/stores/news_dataimages/hoangha/082020/11/07/in_social/ty-gia-usd-hom-nay-118-dong-usd-neo-o-nguong-cao-nhat-1-tuan-do-gia-vang-giam-ap-luc-van-rat-lon.jpg?randTime=1712220802)
-
- The US dollar weakened against major currencies in early Asian trade on Tuesday, with the dollar index down 0.59% at 104.23. This weakness in the greenback supported the Japanese yen, which rose to 152 yen per dollar, close to a key psychological level of 152 yen.
-
-The US Federal Reserve's officials, including Chairman Jerome Powell, emphasized the need for more data before cutting interest rates in speeches on Monday. The US dollar has been fluctuating near its highest level since November 2022 this week, driven by a series of positive economic data from the United States.
-
-Manufacturing activity rebounded in March for the first time in over a year, new orders for U.S.-made goods surpassed expectations, and the labor market remains robust. Market participants expect the Fed to cut interest rates by around 75 basis points this year, less than the central bank's forecast.
-
-Meanwhile, the Japanese yen rebounded slightly in Tuesday's trading session, changing hands at 151.665 yen per dollar, after plunging to a 34-year low of 151.975 yen last week due to the Bank of Japan's historic policy shift.
-
-Despite raising interest rates for the first time in 17 years, BOJ policymakers have pledged to keep interest rates lower than other major central banks, which has limited the yen's recovery, particularly with the US-Japan yield spread still wide.
-
-The Japanese currency has been under pressure for several years due to rising US interest rates and near-zero interest rates in Japan. Japanese officials have repeatedly intervened in the foreign exchange market, selling dollars to buy yen, most recently in September and October 2022, when the yen hit a 32-year low of 152.
-
-In other news, the euro gained 0.6% to trade at 1.0834 USD, while the British pound rose 0.58% to 1.2652 USD.
-
-<details>
-  <summary>Origin content</summary>
-  ---
-layout: post
 title:  " [Tỷ giá USD/VND hôm nay] Tỷ giá ngoại tệ, tỷ giá USD/VND hôm nay 4/4: USD 'lao đao', vì sao ..."
 date:   Thu, 04 Apr 2024 11:00:00 +0700
 categories: entries VN
@@ -92,5 +64,3 @@ Nhật Bản đã can thiệp vào thị trường tiền tệ 3 lần vào thá
 
 Ở một diễn biến khác, đồng Euro tăng 0,6%, đạt mức 1,0834 USD và đồng Bảng Anh tăng 0,58%, hiện mức 1,2652 USD.
 
-
-</details>

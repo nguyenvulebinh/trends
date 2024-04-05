@@ -1,21 +1,5 @@
 ---
 layout: post
-title: "🔥🔥 [Friedhelm Funkel]  Cup final: Former FCK coach Dirk Schuster wishes success to his successor...
-date: Tue, 02 Apr 2024 21 00 00 +0200
-categories: entries DE llm
----
-[ Cup final: Former FCK coach Dirk Schuster wishes success to his successor...](https://www.swr.de/sport/fussball/dfb-pokal/dirk-schuster-wuenscht-friedhelm-funkel-den-dfb-pokal-100.html)
-
-> Dirk Schuster, former coach of 1. FC Kaiserslautern, has expressed his delight over the team's advancement to the DFB-Pokal final. Currently in the second division and ranked third from bottom, Kaiserslautern is set to face Bundesliga leaders Bayer Leverkusen on May 25th. Schuster, who was let go by the club last year, wrote in a 'kicker' column hoping that current coach Friedhelm Funkel will stay for another season if they win the title, as Funkel had initially planned to retire this season. Funkel has hinted at enjoying his role despite the team's precarious situation. Schuster remains optimistic about Kaiserslautern's chances of avoiding relegation.
-
-![ Cup final: Former FCK coach Dirk Schuster wishes success to his successor...](https://www.swr.de/sport/fussball/1-fc-kaiserslautern/1712211349279%2Cdirk-schuster-200~_v-16x9@2dL_-6c42aff4e68b43c7868c3240d3ebfa29867457da.jpg)
-
- Former coach Dirk Schuster is "hugely" delighted about 1. FC Kaiserslautern's advancement to the DFB-Pokal final. Schuster, who was let go by the second division club in November of last year, wrote in a 'kicker' column that he hopes coach Friedhelm Funkel will not bid farewell after potentially winning the title but instead choose to stay for another season. Funkel, who originally only stepped in as a firefighter and intended to retire after this season, has recently hinted at enjoying his task despite the club's precarious situation. Schuster, on the other hand, is optimistic about Kaiserslautern's chances of avoiding relegation. The team, which currently ranks third from bottom in the second division, will face Bundesliga leaders Bayer Leverkusen in the final on May 25th.
-
-<details>
-  <summary>Origin content</summary>
-  ---
-layout: post
 title:  "🔥🔥 [Friedhelm Funkel] Pokalfinale: Ex-FCK-Coach Dirk Schuster wünscht Nachfolger ..."
 date:   Tue, 02 Apr 2024 21:00:00 +0200
 categories: entries DE
@@ -42,5 +26,3 @@ Dirk Schuster glaubt an Klassenerhalt für den FCK
 
 "Der Pokalerfolg hat einmal mehr unter Beweis gestellt, dass der FCK mit Friedhelm eine absolut richtige Trainer-Entscheidung getroffen hat", schrieb Schuster: "Seine pragmatische Art, genau den Fußball spielen zu lassen, der zur Mannschaft passt und die größten Erfolgsaussichten bietet, ist schließlich auch im Abstiegskampf das A und O. Deshalb bin ich überzeugt, dass Lautern die Klasse halten wird."
 
-
-</details>
