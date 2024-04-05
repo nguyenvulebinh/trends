@@ -47,7 +47,7 @@ def transform_md_file(file_path: str) -> str:
         layout, layout_title, date, categories, title, link, image, content = load_md_file(file_path)
         with open(file_path, 'r') as file:
             original_md = file.read()
-        hot_and_keyword = (layout_title.split(']')[0] + ']').strip()
+        hot_and_keyword = (layout_title.split(']')[0] + ']').strip(' "')
     except Exception as e:
         traceback.print_exc()
         return None
@@ -62,13 +62,13 @@ def transform_md_file(file_path: str) -> str:
         elif 'VN' in categories:
             language = 'Vietnamese'
 
-        translated_title = translate_text(title, src_lang=language, tgt_lang="English", stop_sequences=['\n']).replace('\n', ' ')
+        translated_title = translate_text(title, src_lang=language, tgt_lang="English", stop_sequences=['\n']).replace('\n', ' ').replace('"', "'")
         translated_content = translate_text(content, src_lang=language, tgt_lang="English")
         summarized_content = summarize_text(translated_content)
 
         md = f"""---
 layout: {layout}
-title: {hot_and_keyword} {translated_title}
+title: "{hot_and_keyword} {translated_title}"
 date: {date}
 categories: {categories} llm
 ---
