@@ -1,64 +1,44 @@
 ---
 layout: post
-title:  "🔥🔥🔥🔥 [Chelsea đấu với Man utd] Dẫn 3-2 đến phút 90+7, Man United vẫn thua ngược Chelsea"
-date:   Thu, 04 Apr 2024 07:00:00 +0700
+title: "🔥🔥🔥🔥 [Chelsea đấu với Man Utd] Chelsea thắng ngược Man Utd ở phút 100 và 101"
+date: Thu, 04 Apr 2024 07:00:00 +0700
 categories: entries VN
 ---
-[Dẫn 3-2 đến phút 90+7, Man United vẫn thua ngược Chelsea](https://tuoitre.vn/dan-3-2-den-phut-90-7-man-united-van-thua-nguoc-chelsea-20240405042451618.htm)
+[Chelsea thắng ngược Man Utd ở phút 100 và 101](https://vnexpress.net/chelsea-thang-nguoc-man-utd-o-phut-100-va-101-4730710.html)
 
-![Dẫn 3-2 đến phút 90+7, Man United vẫn thua ngược Chelsea](https://cdn1.tuoitre.vn/zoom/600_315/471584752817336320/2024/4/5/2024-04-04t195152z1197917218up1ek441j6e4mrtrmadp3soccer-england-che-mun-report-17122648492751958585852-4-271-792-1775-crop-1712264975002666040609.jpg)
+![Chelsea thắng ngược Man Utd ở phút 100 và 101](https://vcdn1-thethao.vnecdn.net/2024/04/05/chelsea-man-utd-jpeg-171226722-6592-3906-1712267248.jpg?w=1200&h=0&q=100&dpr=1&fit=crop&s=dQvdxilUdOFkb2nCrzlKgg)
 
-Rạng sáng 5-4 (giờ Việt Nam), Chelsea đã đánh bại Man United với tỉ số 4-3 trên sân nhà ở vòng 31 Premier League, theo một kịch bản khó tin nhất có thể.
+Anh- Tiền đạo Cole Palmer ghi liên tiếp hai bàn ở phút 100 và 101, giúp Chelsea thắng đội khách Man Utd 4-3 tại vòng 31 Ngoại hạng Anh. - VnExpress.
 
-Gallager ghi bàn mở tỉ số cho Chelsea - Ảnh: REUTERS
+AnhTiền đạo Cole Palmer ghi liên tiếp hai bàn ở phút 100 và 101, giúp Chelsea thắng đội khách Man Utd 4-3 tại vòng 31 Ngoại hạng Anh.
 
-Đến tận phút 90+7 của trận đấu, nhiều trang báo phương Tây vẫn đang giật tít: "Man United ngược dòng ngoạn mục trước Chelsea" khi trực tuyến trận đấu. Nhưng rồi chỉ bằng 3 phút điên rồ cuối cùng, Chelsea đã lật ngược thế cờ.
+Bàn thắng ở những phút bù cuối trận thường là đặc sản ở những trận đấu của Man Utd, và họ đã tái hiện điều đó trong cả ba trận gần đây trên mọi đấu trường. Tuy nhiên kết quả của thầy trò Erik ten Hag lại đi từ niềm vui đến sự thất vọng.
 
-Huấn luyện viên Ten Hag bất ngờ cất Rashford trên ghế dự bị ở trận này. Chiến lược gia người Hà Lan cho biết ông muốn giữ cho tiền đạo ngôi sao này có thể trạng tốt nhất trước thềm trận đại chiến với Liverpool vào cuối tuần.
+Từ bàn thắng quyết định phút 121 của Amad Diallo ở phút 121 trận tứ kết Cup FA thắng Liverpool 4-3, Man Utd tiếp tục ghi bàn ở phút 95 trên sân của Brentford nhưng bị chủ nhà gỡ hòa 1-1. Hành quân tới Stamford Bridge, "Quỷ Đỏ" dẫn 3-2 từ phút 67 nhưng sau đó lép vế và bị trừng phạt nhờ tài năng của Palmer.
 
-Không có Rashford, Antony được chọn đá chính ở cánh phải hàng công, còn Garnacho đá cánh trái, hỗ trợ cho Hojlund ở vị trí trung phong cắm.
+Cầu thủ Chelsea mừng chiến thắng nghẹt thở trước Man Utd. Ảnh: AFP
 
-Nhưng trong lúc Man United còn chưa triển khai được đường tấn công nào, họ đã bất ngờ bị thủng lưới ở phút thứ 4.
+Nỗi thất vọng của cầu thủ Man Utd. Ảnh: Reuters
 
-Từ cánh phải, Gusto căng ngang đưa bóng đập chân hậu vệ Man United đến ngay vị trí của Gallagher. Tiền vệ người Anh tung cú sút sệt đánh bại thủ thành Onana, mở tỉ số cho Chelsea.
+Phút bù thứ 10 hiệp hai, Palmer sút phạt đền về góc thấp bên phải, đánh lừa thủ môn Andre Onana, gỡ hòa 3-3 cho Chelsea. Tình huống xuất phát từ pha phạm lỗi của Diogo Dalot từ phía sau Noni Madueke trong cấm địa đội khách. Hiệp hai chỉ được bù tám phút, nhưng đến phút 101, Palmer nhận bóng từ cú đá phạt góc ngắn ở Enzo Fernandez, trước khi sút từ bên phải cấm địa trúng người Scott McTominay đổi hướng vào lưới, ấn định thắng lợi 4-3 cho chủ nhà.
 
-Đến phút 18, Antony phạm sai lầm khi ngáng chân Cucurella trong vòng cấm địa, và trọng tài lập tức chỉ tay vào chấm phạt đền. Trên chấm 11m, Palmer không mắc sai lầm nào để nâng tỉ số lên 2-0 cho Chelsea.
+Palmer 22 tuổi, sinh ra ở Manchester, tham gia lò đào tạo trẻ Man City từ khi mới 8 tuổi. Hè 2023, anh dứt áo đội bóng thơ ấu sau 13 năm gắn bó, do không được đá chính thường xuyên. Tại Chelsea, Palmer trở thành kép chính trên hàng công, chơi bùng nổ ngay mùa đầu tiên, khi anh đang cùng đứng thứ hai trong danh sách ghi bàn Ngoại hạng Anh với 16 pha lập công, chỉ kém Erling Haaland hai bàn.
 
-Garnacho (phải) ghi bàn rút ngắn tỉ số sau sai lầm của Caicedo - Ảnh: REUTERS
+Tối 4/4, màn trình diễn của Palmer xứng đáng nhận điểm 10 từ nhiều chuyên trang thống kê như Whoscored hay Sofascore. Tiền đạo này dứt điểm chín lần, ghi ba bàn và tạo ra tới tám cơ hội cho đồng đội dứt điểm. Tổng cộng, anh tham gia trực tiếp vào 17 pha dứt điểm của Chelsea, thông số tốt nhất của một cầu thủ ở Ngoại hạng Anh mùa này.
 
-Dẫn trước 2 bàn và có thế trận cực tốt nhưng rồi một thoáng lơ là đã khiến Chelsea trả giá. Phút 34, Caceido chuyền bóng lỗi, tạo điều kiện cho Garnacho băng lên cướp bóng rồi ghi bàn rút ngắn cách biệt cho Man United.
+Cú sút phạt đền về góc thấp bên phải giúp Palmer nâng tỷ số lên 2-0. Ảnh: Reuters
 
-Bàn thắng bất ngờ giúp Man United xốc lại tinh thần. Và chỉ 5 phút sau đó, Bruno Fernandes ghi bàn gỡ hòa cho đội nhà với một pha đánh đầu chuẩn xác sau đường tạt bóng của Dalot.
+Cuộc chiến giữa hai gã khổng lồ đang thất thế ở Ngoại hạng Anh diễn ra đúng với phong độ thất thường của họ mùa này. Chelsea chỉ chơi tốt trong nửa đầu hiệp một và nửa cuối hiệp hai, và thời gian còn lại do Man Utd kiểm soát. Chủ nhà mở tỷ số ngay phút thứ tư nhờ công của tiền vệ Conor Gallagher, từ một đường chuyền lỗi của tiền vệ 19 tuổi Kobbie Mainoo.
 
-Ở chiều ngược lại, Chelsea vẫn đẩy cao đội hình chơi tấn công xuyên suốt trận đấu. Họ không gặp may khi các cầu thủ tấn công liên tiếp bỏ lỡ cơ hội đáng tiếc. Trong đó có một pha dứt điểm dội cột của Gallagher vào cuối hiệp đấu.
+Sau đó, cầu thủ Chelsea nhường lại sân khấu cho Palmer tỏa sáng. Phút 18, Antony phạm lỗi với hậu vệ Marc Cucurella trong cấm địa Man Utd, khiến đội khách bị thổi phạt đền. Khi Palmer đứng trước chấm 11m, khán giả "Quỷ Đỏ" hô vang: "Sản phẩm thất bại của Man City". Nhưng họ có lẽ không nên làm vậy, bởi anh thừa nhận bản thân là CĐV Man Utd từ khi còn bé. Và kể từ lúc khán giả Man Utd chế giễu Palmer, anh lập hat-trick.
 
-Thế trận hiệp 2 vẫn tương tự như hiệp 1, khi cả 2 đội đều chơi tấn công và cực kỳ hớ hênh trong khâu phòng ngự. Man United tận dụng cơ hội tốt hơn và vươn lên dẫn trước ở phút 67.
+Bên phía Man Utd, tiền vệ 20 tuổi Alejandro Garnacho chơi cũng không tồi với cú đúp. Phút 34, tiền vệ Moises Caicedo chuyền ngang lỗi, để Garnacho cướp được rồi dốc xuống cấm địa, sút chân trái chìm chéo góc rút ngắn tỷ số. Sau khi Dalot kiến tạo cho đội trưởng Bruno Fernandes ghi bàn gỡ hòa 2-2, Man Utd vượt lên dẫn 3-2 với cú tạt bóng bằng má ngoài chân trái của Antony cho Garnacho đánh đầu vào lưới chủ nhà.
 
-Garnacho một lần nữa lập công - Ảnh: REUTERS
+HLV Erik ten Hag ôm mặt thất vọng với thất bại của Man Utd. Ảnh: Reuters
 
-Antony lập công đầu ở tình huống này với một cú vẩy má ngoài tuyệt đẹp, tạo thành đường kiến tạo như đặt cho Garnacho băng lên đánh đầu ghi bàn.
+Nhưng nỗ lực của Garnacho không đủ giúp Man Utd ra về với dù chỉ một điểm. Hàng thủ đội khách tiếp tục để Chelsea dứt điểm tới 28 lần, sau khi bị Brentford bắn phá cầu môn 31 lần. Chứng kiến bàn thua ở phút cuối của đội nhà, HLV Erik ten Hag ôm mặt thất vọng. Bởi cơ hội dự Champions League với Man Utd coi như không còn.
 
-Sau bàn thua này, huấn luyện viên Pochettino tung ra một loạt sự thay đổi người. Lần lượt Sterling, Chukwuemeka, Madueke... được tung vào sân. Nhưng Man United lúc này đã lùi về phòng ngự và khiến Chelsea hầu như bế tắc hoàn toàn.
+Trong khi, HLV Mauricio Pochettino giơ hai nắm đấm lên trời, hướng về khán giả sau hiệu còi mãn cuộc. Chelsea cũng không còn nhiều động lực mùa này, nhưng họ vẫn có thể cạnh tranh suất dự một cup châu Âu. Với tài năng của Palmer, Chelsea cũng có thể kỳ vọng làm nên chuyện trước Man City ở bán kết Cup FA.
 
-Phút 86, người hùng Garnacho rời sân, nhận những tràng pháo tay vang dội từ khán đài cổ động viên Man United. Trọng tài cho trận đấu 8 phút bù giờ, nhưng lối đá tăm tối của Chelsea không tạo ra được tia hy vọng nào.
-
-Khi mà tất cả đều đã đinh ninh về một cuộc lội ngược dòng mỹ mãn dành cho Man United, chính tay hậu vệ Dalot lại khiến mọi thứ sụp đổ ở phút 90+7.
-
-Tình huống Madueke bị Dalot đẩy ngã - Ảnh: FOOTBALL LONDON
-
-Từ hành lang cánh trái của đội nhà, Dalot bị Madueke vượt qua. Và rồi trong nỗ lực truy cản, anh trượt té, đẩy Madueke ngã trong vòng cấm địa. Sau khi tham khảo VAR, trọng tài chính cho Chelsea hưởng quả phạt đền thứ 2 trong trận đấu.
-
-Trước sức ép cực lớn, Palmer vẫn lạnh lùng sút vào góc trái khung thành, gỡ hòa 3-3 cho Chelsea. Lúc này đồng hồ đã chỉ sang phút 90+10.
-
-Vì mất thời gian cho VAR, trận đấu được bù giờ thêm vài phút. Và các cầu thủ Chelsea đã tận dụng thành công lợi thế về tinh thần.
-
-Palmer ăn mừng bàn thắng - Ảnh: REUTERS
-
-Phút 90+11, Chelsea được hưởng phạt góc. Thay vì tạt bổng, Enzo tung đường chuyền sệt cho Palmer băng vào dứt điểm. Cú sút của tiền vệ người Anh không mấy hiểm hóc nhưng bất ngờ chạm người McTominay đi đổi hướng, khiến thủ thành Onana bất lực nhìn bóng bay vào lưới.
-
-Một nửa số cầu thủ Man United trên sân đổ gục sau bàn thua này. Từ chỗ ngược dòng ngoạn mục, họ phải hứng chịu trận thua có lẽ là khó tin nhất của Premier League mùa giải năm nay.
-
-Sự thất vọng của các ngôi sao Man United - Ảnh: REUTERS
-
-Chung cuộc, Chelsea thắng Man United 4-3. Kết quả này cũng giúp thầy trò ông Pochettino có 43 điểm, rút ngắn cách biệt với vị trí thứ 6 của Man United còn 5 điểm. Chelsea đồng thời cũng đang đá ít hơn Man United 1 trận.
+Hoàng An
 

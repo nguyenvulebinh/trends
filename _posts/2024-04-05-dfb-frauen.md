@@ -1,18 +1,24 @@
 ---
 layout: post
-title: "🔥🔥 [DFB-Frauen] Fußball-Länderspiel: DFB-Frauen starten mit Sieg gegen Österreich ..."
+title: "🔥🔥 [DFB-Frauen] DFB-Frauen: Gwinn und Bühl wenden Blamage in Österreich ab"
 date: Fri, 05 Apr 2024 20:00:00 +0200
 categories: entries DE
 ---
-[Fußball-Länderspiel: DFB-Frauen starten mit Sieg gegen Österreich ...](https://www.spiegel.de/sport/fussball/dfb-frauen-nach-0-2-rueckstand-deutsche-fussballerinnen-starten-mit-sieg-in-die-em-qualifikation-a-41002393-9719-49c6-9ac1-2baafa7406fc)
+[DFB-Frauen: Gwinn und Bühl wenden Blamage in Österreich ab](https://www.ran.de/sports/fussball/em-qualifikation-frauen/news/dfb-frauen-gwinn-und-buehl-wenden-blamage-in-oesterreich-ab-359394)
 
-![Fußball-Länderspiel: DFB-Frauen starten mit Sieg gegen Österreich ...](https://cdn.prod.www.spiegel.de/images/3441f9cc-dc2f-4618-93ae-c5074378ffc9_w1200_r1.778_fpx42_fpy50.jpg)
+![DFB-Frauen: Gwinn und Bühl wenden Blamage in Österreich ab](https://mim.p7s1.io/pis/ld/5b45zChLCVyZ-c1vEwXZAanB-DJ78rnq2V2gRWTHzVV6NywNWMSJCEGmZ4YSENP-WRL0b9lo2zmFQhLTfD8R3PBoRKvCBMo4Ntu5hJrqch1BBjjJOD22eH_o17K8ym-HSPSx4MJwuyo/profile:original)
 
-Ohne Kapitänin Alexandra Popp und einige Stammkräfte taten sich die deutschen Fußballerinnen in Österreich zunächst schwer. Nach einem 0:2-Rückstand ...
+Blamage verhindert: Die deutschen Fußballerinnen haben in der EM-Quali einen Fehlstart gerade noch so abgewendet. Dafür brauchte es in Österreich aber einen ...
 
-Mit zunehmender Spieldauer kam Deutschland besser in die Partie. Sjoeke Nüsken vom FC Chelsea unterstrich ihre hervorragende Form und kam zweimal zum Abschluss (21./30.). Auch am Anschlusstreffer war Nüsken beteiligt. Über die 23-Jährige landete der Ball bei Bühl, die von der Strafraumkante aus mit einem platzierten Rechtsschuss das 1:2 erzielte (39.).
+Anzeige
 
-Umstrittener Elfmeter für Deutschland
+Blamage verhindert: Die deutschen Fußballerinnen haben in der EM-Quali einen Fehlstart gerade noch so abgewendet. Dafür brauchte es in Österreich aber einen Kraftakt.
 
-Im zweiten Durchgang war es das deutsche Team, das einen perfekten Start erwischte: Nüsken steckte auf Bühl durch, die Angreiferin des FC Bayern vollendete aus halblinker Position flach ins lange Eck (49.). Diesmal nicht mit dem rechten, sondern mit ihrem ebenso starken linken Fuß.
+Dank Neu-Kapitänin Giulia Gwinn und Doppelpackerin Klara Bühl haben die deutschen Fußballerinnen einen Fehlstart in die EM-Qualifikation abgewendet. Nach miserablem Beginn erkämpfte die Auswahl von Horst Hrubesch in Österreich nach 0:2-Rückstand noch ein 3:2 (1:2) und verhinderte im vierten Duell die erste Niederlage im Nachbarschaftsduell.
+
+Das Bayern-Duo Bühl (39./49.) und Gwinn (64., Foulelfmeter) sorgte in Linz für den ersten Schritt der Vize-Europameisterinnen zur EURO 2025 in der Schweiz. Zunächst hatte die starke Eileen Campbell (9./16.) vom SC Freiburg die aggressiven Gastgeberinnen jubeln lassen.
+
+Am Dienstag (18.10 Uhr/ZDF) gegen Island sollte in Aachen dennoch eine Leistungssteigerung her. Die Gruppenersten und -zweiten qualifizieren sich direkt für die EM, die Dritt- und Viertplatzierten müssen den Umweg über die Play-offs nehmen. Die Qualifikation soll dem DFB-Team zugleich zur Olympia-Vorbereitung dienen.
+
+In Abwesenheit der am Knie verletzten Alexandra Popp führte Gwinn die verjüngte deutsche Auswahl erstmals als Kapitänin an. Im Sturm übernahm Lea Schüller (beide FC Bayern) Popps Position. "Wir wollen spielbestimmend sein und werden versuchen, das Spiel von Anfang an in die Hand zu nehmen", hatte Hrubesch vor der Partie erklärt.
 

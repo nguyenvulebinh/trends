@@ -1,42 +1,32 @@
 ---
 layout: post
-title: "🔥🔥 [Wangen im Allgäu] Nach Messerangriff in Wangen im Allgäu: 34-Jähriger wegen ..."
+title: "🔥🔥 [Wangen im Allgäu] Wangen im Allgäu - Nach Messerangriff: Vierjährige 'über den Berg'"
 date: Thu, 04 Apr 2024 13:00:00 +0200
 categories: entries DE
 ---
-[Nach Messerangriff in Wangen im Allgäu: 34-Jähriger wegen ...](https://www.tagesschau.de/inland/regional/badenwuerttemberg/swr-wangen-im-allgaeu-mann-verletzt-kind-in-supermarkt-mit-messer-100.html)
+[Wangen im Allgäu - Nach Messerangriff: Vierjährige 'über den Berg'](https://www.schwarzwaelder-bote.de/inhalt.deutschland-messerangriff-auf-vierjaehrige-ermittlungen-gehen-weiter.63c7acd7-0466-4257-8be1-e95bcb8991cc.html)
 
-![Nach Messerangriff in Wangen im Allgäu: 34-Jähriger wegen ...](https://images.tagesschau.de/image/865b49dc-7e9a-4093-bcc0-9b538df4791e/AAABjqzmgMs/AAABjcWen7M/16x9-1280/swr-17932.jpg)
+![Wangen im Allgäu - Nach Messerangriff: Vierjährige 'über den Berg'](https://www.schwarzwaelder-bote.de/media.media.72d0df64-4d80-42d7-acaa-f75685ed36a6.16x9_1024.jpg)
 
-Ein vier Jahre altes Mädchen ist am Mittwoch in einem Supermarkt in Wangen im Allgäu mit einem Messer attackiert und verletzt worden.
+Eine Vierjährige wird mit einem Messer in einem Supermarkt schwer verletzt. Der mutmaßliche Angreifer kommt in ein psychiatrisches Krankenhaus.
 
-Baden-Württemberg Nach Messerangriff in Wangen im Allgäu: 34-Jähriger wegen versuchten Mordes in U-Haft Stand: 05.04.2024 08:03 Uhr
+Eine Vierjährige wird mit einem Messer in einem Supermarkt schwer verletzt. Der mutmaßliche Angreifer kommt in ein psychiatrisches Krankenhaus. Die Suche nach dem Motiv geht weiter.
 
-Ein vier Jahre altes Mädchen ist am Mittwoch in einem Supermarkt in Wangen im Allgäu mit einem Messer attackiert und verletzt worden. Die Polizei nahm einen 34-Jährigen fest.
+Wangen im Allgäu - Nach der Messerattacke auf ein Mädchen in einem Supermarkt in Wangen im Allgäu ist die Vierjährige auf dem Weg der Besserung. Sie sei über dem Berg, sagte eine Polizeisprecherin. Die Tatwaffe sei ein Küchenmesser gewesen, das nach dem Angriff sichergestellt worden sei.
 
-Ein Mann hat am Mittwochnachmittag eine Vierjährige in einem Supermarkt in Wangen im Allgäu (Kreis Ravensburg) unvermittelt angegriffen und mit einem Messer schwer verletzt. Das Mädchen sei nicht lebensgefährlich verletzt worden und befinde sich auf dem Weg der Besserung, sagte eine Sprecherin der Polizei am Freitag. Das Kind wurde den Angaben zufolge am Mittwoch in eine Klinik gebracht und dort operiert.
+Der 34 Jahre alte Tatverdächtige sei wegen versuchten Mordes in Tateinheit mit gefährlicher Körperverletzung in ein psychiatrisches Krankenhaus gebracht worden, teilten Polizei und Staatsanwaltschaft mit. Ein Haftrichter am Amtsgericht Ravensburg habe einen Unterbringungshaftbefehl erlassen. Der mutmaßliche Täter hatte sich widerstandslos festnehmen lassen. Sein Bezug zu Wangen sei noch Gegenstand der Ermittlungen.
 
-Der mutmaßliche Täter, ein 34-Jähriger mit syrischer und niederländischer Staatsbürgerschaft, sei nach dem Vorfall festgenommen worden. Der Mann kam am Donnerstagabend in Handschellen vor den Haftrichter. Dieser erließ einen Haftbefehl wegen versuchten Mordes in Tateinheit mit gefährlicher Körperverletzung, so die Polizei am Freitagmorgen. Der Mann befinde sich zwischenzeitlich in einem psychiatrischen Krankenhaus.
+Lesen Sie auch
 
-Zeuge nahm dem mutmaßlichen Täter das Messer ab
+Der Mann, der die syrische und die niederländische Staatsbürgerschaft besitzt, steht unter Verdacht, das Mädchen in dem Supermarkt mit einem Messer attackiert und schwer verletzt zu haben. Laut Polizei war es ein unvermittelter Angriff. Das Kind war den Ermittlern zufolge nach der Messerattacke schwer verletzt in eine Klinik gebracht und operiert worden. Die Verletzungen waren laut Polizei nicht lebensgefährlich.
 
-Die Vierjährige war laut Polizei in Begleitung ihrer Mutter in dem Discounter. Laut Polizei hat der Mann das Mädchen unvermittelt mit einem Messer angegriffen. Ein Zeuge habe den Angriff mitbekommen und dem Mann das Messer abgenommen. Der Verdächtige habe das Geschäft nach der Tat verlassen, so die Sprecherin.
+Täter und Opfer kannten sich nicht
 
-Der Zeuge verständigte die Polizei und verfolgte ihn. "Der Zeuge hat die Polizei gerufen und uns durchgegeben, wo der Mann sich befindet. So konnten meine Kollegen ihn festnehmen", so eine Sprecherin weiter. Der Mann habe sich widerstandslos festnehmen lassen.
+Der mutmaßliche Täter und das Opfer kannten sich einer Sprecherin zufolge nicht. Hinweise für eine Vorbeziehung gebe es nicht. Die Vierjährige sei am Mittwochnachmittag mit ihrer Mutter in dem Discounter unterwegs gewesen.
 
-Der Mann ging bisherigen Erkenntnissen zufolge unvermittelt auf das vierjährige Mädchen zu und verletzte es mit einem Messer. Polizeipräsidium Ravensburg
+Den Angaben zufolge hatte ein Kunde im Supermarkt das Geschehen bemerkt, dem Angreifer das Messer abgenommen und die Beamten verständigt. Der 52-Jährige sei nicht verletzt worden. "Der Zeuge hat die Polizei gerufen und uns durchgegeben, wo der Mann sich befindet. So konnten meine Kollegen ihn festnehmen", sagte die Polizeisprecherin.
 
-Motiv für Messerangriff unklar - Bestürzung in Wangen
+Wangens Oberbürgermeister Michael Lang (parteilos) hatte die Reaktion des Helfers als großartig bezeichnet. Er verdiene irgendwann eine Auszeichnung dafür, sagte Lang. Die Stadt hatte sich bestürzt über den Vorfall gezeigt.
 
-Das Motiv des Mannes und der genaue Hergang der Tat werden noch ermittelt. "Die beiden kannten sich bis dato nicht, und es gab wohl auch keine Vorbeziehung", sagte eine Polizeisprecherin. "Delikte dieser Art sind sehr selten", betonte sie.
-
-Wangens Oberbürgermeister Michael Lang (parteilos) zeigte sich nach dem Messerangriff bestürzt. "Dass ein Kind unvermittelt angegriffen wird, ist etwas, was uns alle schockiert und uns unglaublich betroffen macht und bestürzt", sagte Lang am Donnerstag im Rathaus der Stadt dem SWR.
-
-Die Gedanken seien bei der Familie, die er kenne. Der Zeuge im Supermarkt verdiene für seine Reaktion irgendwann eine Auszeichnung. Der Supermarkt war nach dem Messerangriff für die Spurensuche geschlossen worden. Am Donnerstagvormittag war er wieder für die Kundschaft geöffnet.
-
-Mahnwache vor Supermarkt
-
-Mehrere Dutzend Menschen haben sich am Donnerstagabend zu einer Mahnwache vor dem Supermarkt getroffen, in dem das Mädchen attackiert worden war. Die Versammlung war nicht angemeldet, die Polizei bestätigte einen Bericht der "Schwäbischen Zeitung". Eine Pressevertreterin sei im Laufe der Mahnwache beleidigt worden, näheres zu dem Vorfall und wer zu der Versammlung aufgerufen hatte, konnte die Polizei noch nicht sagen.
-
-Sendung am Do., 4.4.2024 16:00 Uhr, SWR Aktuell Baden-Württemberg, SWR BW
+Laut Polizei wird in dem Fall nun weiter ermittelt. Zeugen sollen befragt und Spuren ausgewertet werden. Das Motiv und die Hintergründe der Tat sind nach wie vor nicht bekannt. Der Tatverdächtige hatte sich zu den Vorwürfen zunächst nicht geäußert.
 

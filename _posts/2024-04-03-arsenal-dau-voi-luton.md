@@ -1,7 +1,7 @@
 ---
 layout: post
-title:  "🔥🔥🔥 [Arsenal đấu với Luton] Link trực tiếp trận Arsenal vs Luton Town, vòng 31 Premier League"
-date:   Thu, 04 Apr 2024 00:00:00 +0700
+title: "🔥🔥🔥 [Arsenal đấu với Luton] Link trực tiếp trận Arsenal vs Luton Town, vòng 31 Premier League"
+date: Thu, 04 Apr 2024 00:00:00 +0700
 categories: entries VN
 ---
 [Link trực tiếp trận Arsenal vs Luton Town, vòng 31 Premier League](https://laodong.vn/bong-da-quoc-te/link-truc-tiep-tran-arsenal-vs-luton-town-vong-31-premier-league-1323076.ldo)

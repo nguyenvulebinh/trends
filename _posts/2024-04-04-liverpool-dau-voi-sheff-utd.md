@@ -1,32 +1,42 @@
 ---
 layout: post
-title: "🔥🔥🔥 [Liverpool đấu với Sheff utd] Liverpool trở lại ngôi đầu khi vượt qua Sheffield United"
+title: "🔥🔥🔥 [Liverpool đấu với Sheff utd] Kết quả Liverpool 3-1 Sheffield: The Kop đòi lại ngôi đầu"
 date: Thu, 04 Apr 2024 17:00:00 +0700
 categories: entries VN
 ---
-[Liverpool trở lại ngôi đầu khi vượt qua Sheffield United](https://thethao.sggp.org.vn/liverpool-tro-lai-ngoi-dau-khi-vuot-qua-sheffield-united-post733897.html)
+[Kết quả Liverpool 3-1 Sheffield: The Kop đòi lại ngôi đầu](https://bongdaplus.vn/ngoai-hang-anh/ket-qua-liverpool-vs-sheffield-the-kop-doi-lai-ngoi-dau-4271612404.html)
 
-![Liverpool trở lại ngôi đầu khi vượt qua Sheffield United](https://image.sggp.org.vn/1200x630/Uploaded/2024/dqmbbcvo/2024_04_05/liverpool-6697.jpg.webp)
+![Kết quả Liverpool 3-1 Sheffield: The Kop đòi lại ngôi đầu](https://cdn.bongdaplus.vn/Assets/Media/2024/04/05/77/ket-qu?-liverpool-vs-sheffield.jpg)
 
-Liverpool đã giành lại vị trí dẫn đầu trong cuộc đua vô địch Premier League đầy hấp dẫn, sau khi cú sút sấm sét của Alexis Mac Allister và pha đánh đầu muộn ...
+Trận đấu Liverpool vs Sheffield tại vòng 31 Ngoại hạng Anh 2023/24 đã chứng kiến sức mạnh của Lữ đoàn đỏ. Đoàn quân của Jurgen Klopp giành chiến thắng 3-1 ...
 
-Liverpool đã giành lại vị trí dẫn đầu trong cuộc đua vô địch Premier League đầy hấp dẫn, sau khi cú sút sấm sét của Alexis Mac Allister và pha đánh đầu muộn của Cody Gakpo đã ấn định chiến thắng đầy căng thẳng 3-1 trên sân nhà trước CLB cuối bảng Sheffield United.
+Trận đấu Liverpool vs Sheffield tại vòng 31 Ngoại hạng Anh 2023/24 đã chứng kiến sức mạnh của Lữ đoàn đỏ. Đoàn quân của Jurgen Klopp giành chiến thắng 3-1 để đòi lại ngôi đầu và sẵn sàng hủy diệt MU ở trận đại chiến vào cuối tuần.
 
-Liverpool giành lại vị trí dẫn đầu sau chiến thắng đầy căng thẳng 3-1 trước Sheffield United.
+Bàn thắng Liverpool vs Sheffield
 
-Sau khi chứng kiến Arsenal và Man.City đều thắng trước đó một ngày, Liverpool nhận thức rõ họ phải làm gì trước đội cuối bảng trên sân nhà. Nhưng sân Anfield chứng kiến bàn mở tỷ số khá bất ngờ ở phút 17, Darwin Nunez áp sát thủ môn Ivo Grbic đang trống trải và có quá nhiều thời gian xử lý, nhưng anh này lại sút thẳng vào tiền đạo chủ nhà và rồi tuyệt vọng lao theo quả bóng đang từ từ lăn vào lưới.
+Liverpool: Nunez (17'), Mac Allister (76'), Gakpo (90')
 
-Pha lập công may mắn dường như sẽ mở ra một cơn mưa bàn thắng khi Liverpool tìm kiếm sự vượt trội về hiệu số để so đọ với Arsenal, đội đã đánh bật họ khỏi vị trí đầu bảng một ngày trước đó. Nhưng đoàn quân của HLV Jurgen Klopp lại thi đấu kém xa phong độ tốt nhất của mình, và Sheffield United thậm chí đã khiến khán giả Anfield choáng váng ở phút 58 khi Connor Bradley đá phản lưới nhà, san bằng tỷ số 1-1.
+Sheffield: Bradley (58'-phản lưới)
 
-Đội khách cho thấy họ có khả năng giành được điểm đầy bất ngờ, trước khi Mac Allister chớp thời cơ từ đường bóng bật ra ngay trước vòng cấm địa để tung cú sút bằng chân phải xoáy vào góc cao, tạo lại cách biệt ở phút 76. HLV Chris Wilder của Sheffield United buồn bã nói: “Bạn đang hy vọng cú sút đó bay lên khán đài. Nhưng đó là lý do tại sao đây là những cầu thủ đẳng cấp thế giới, họ đi thẳng đến cuối trận và hơn thế nữa”.
+Khi mà các CĐV trên sân Anfiels còn chưa kịp ổn định chỗ ngồi thì Liverpool đã suýt bị thủng lưới. Từ một quả ném biên, Ahmedhodzic bật cao đánh đầu ngược chiến thuật nhưng cú đá nối của McAtee ở cự ly gần không thắng được thủ thành Kelleher.
 
-Gakpo sau đó đã chắc chắn chiến thắng sẽ ở lại Anfield ở phút 90, giúp Liverpool tiến thêm một bước nữa hướng tới sự ra đi hoàn hảo của Klopp khi HLV này chuẩn bị ra đi vào cuối mùa giải. Nhà cầm quân người Đức nói: “Chúng tôi đã phải đào sâu, nhưng đó là điều bình thường. Thái độ của chúng tôi rất tốt, thứ bóng đá không đẹp trong nhiều thời điểm. Sau đó, mục tiêu của Macca là người thay đổi hoàn toàn cuộc chơi”.
+Sau tình huống suýt thua này, Liverpool dồn lên tấn công như vũ bão. Họ thi nhau bắn phá khung thành đội khách và cuối cùng điều gì phải đến cũng đã đến.
 
-HLV Jurgen Klopp chia sẽ niềm vui cùng người hùng Mac Allister.
+Phút 17, xuất phát từ tình huống gây sức ép của Darwin Nunez, thủ thành Ivo Grbic bên phía Sheffield bất cẩn phá bóng trúng người tiền đạo người Uruguay khiến bóng vô tình đi vào lưới, qua đó giúp Liverpool vươn lên dẫn trước.
 
-Liverpool có 70 điểm sau 30 trận, hơn Arsenal 2 điểm và hơn nhà vô địch Man.City 3 điểm. Nhưng thầy trò Klopp không thể vui mừng quá lâu khi vào Chủ nhật này, họ có chuyến làm khách khó khăn đến sân Man.United, đội vừa bị tổn thương vì trận thua ngược 3-4 tại Chelsea hôm thứ Năm. Và một lần nữa vào cuối tuần này, trước khi ra sân, Liverpool có thể thấy mình tụt lại nếu Arsenal thắng tại Brighton, còn Man.City cũng sẽ thu hẹp cách biệt nếu thắng tại Crystal Palace.
+Có được lợi thế, Liverpool tiếp tục dồn ép đối thủ, song không có thêm bàn thắng nào được ghi trước khi hiệp thi đấu đầu tiên khép lại. Một kịch bản tương tự diễn ra vào hiệp 2 khi Liverpool không ngần ngại dồn đội hình lên nhằm tìm kiếm bàn nhân đôi cách biệt.
 
-Klopp đánh giá thêm: “Chúng tôi đã kiểm soát trận đấu hôm nay nhưng không đủ sáng tạo. Tôi không hy vọng chúng tôi có hết cơ hội này đến cơ hội khác nhưng bạn phải tăng tốc, tăng tốc liên tục. Trận đấu này khó bắt nhịp nhưng lẽ ra chúng tôi phải có nhịp điệu tốt hơn. Cuối cùng thì mọi chuyện đều ổn. Có lẽ tất cả các trò chơi khác giờ đã khác, đặc biệt là trò tiếp theo”.
+Tuy nhiên, bất ngờ đã xảy ra khi đội khách có được bàn gỡ hòa ở phút 58. Sau một tình huống phản công hiếm hoi, Hamer đánh đầu ở góc hẹp, bóng trúng chân Bradley đổi hướng đi xuyên qua háng thủ thành Kelleher rồi lăn vào lưới.
 
-VIỆT TÙNG
+Liverpool đương nhiên không hài lòng với kết quả này và họ lại càng điên cuồng tấn công hơn. Sau những nỗ lực không biết mệt mỏi, thành quả đã đến với đội chủ nhà. Phút 76, hậu vệ của Sheffield phá bóng không tốt tạo điều kiện để Mac Allister tung cú dứt điểm mu lai má từ ngoài vòng cấm tung lưới đội khách.
+
+Có được bàn thắng vượt lên nhưng Liverpool vẫn chưa dừng lại. Họ tiếp tục tấn công và có bàn ấn định tỷ số của tiền đạo Cody Gakpo ở phút 90.
+
+Kết quả cuối cùng của trận đấu này là 3-1 dành cho Lữ đoàn đỏ. 3 điểm có được giúp Liverpool đòi lại ngôi đầu bảng từ tay Arsenal, đồng thời sẵn sàng cho chuyến làm khách vào cuối tuần tới sân của Man United, đội vừa thúc thủ 3-4 trên sân của Chelsea.
+
+Đội hình thi đấu Liverpool vs Sheffield
+
+Liverpool: Kelleher; Bradley, Konate, Van Dijk, Gomez (Gakpo 73'); Mac Allister, Szoboszlai (Jones 73'), Gravenberch (Robertson 60'); Salah (Elliott 60'), Nunez, Diaz
+
+Sheffield United: Grbic; Bogle, Holgate (Slimane 87'), Ahmedhodzic, Trusty (Brooks 78'), Robinson; Souza, Arblaster, Hamer (Osborn 62'); McAtee (Osula 63'); Brereton Diaz (McBurnie 63')
 
