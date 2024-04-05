@@ -31,7 +31,7 @@ github_username:  nguyenvulebinh
 theme: minima
 plugins:
   - jekyll-feed
-  - jekyll-paginate
+  - jekyll-paginate-v2
 
 
 paginate: 15
