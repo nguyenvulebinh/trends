@@ -35,7 +35,6 @@ plugins:
 
 
 paginate: 15
-paginate_path: "/trends/page:num/"
 
 # Exclude from processing.
 # The following items will not be processed, by default.
