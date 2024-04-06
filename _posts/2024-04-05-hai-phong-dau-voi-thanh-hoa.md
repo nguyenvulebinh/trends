@@ -1,5 +1,28 @@
 ---
 layout: post
+title: "[Hải Phòng đấu với Thanh Hóa]  Defeated Hai Phong 0-2, Thanh Hoa extends the losing streak."
+date: Fri, 05 Apr 2024 20 00 00 +0700
+categories: entries VN llm
+---
+[ Defeated Hai Phong 0-2, Thanh Hoa extends the losing streak.](https://thethao.sggp.org.vn/thua-hai-phong-0-2-thanh-hoa-keo-dai-mach-tran-sa-sut-post734034.html)
+
+> In round 15 of V-League 2023-2024, Hải Phòng faced Thanh Hóa at Lạch Tray stadium, with Hải Phòng winning the match 2-0. The first goal was scored by Hữu Sơn in the 15th minute from a penalty kick, and Bicou secured the second goal in the 81st minute. This victory helped Hải Phòng temporarily move up in the rankings, while Thanh Hóa's consecutive losses and draws have distanced them from the top three spots. The home team displayed determination and strong defense throughout the game, which led to their success against Thanh Hóa.
+
+![ Defeated Hai Phong 0-2, Thanh Hoa extends the losing streak.](https://image.sggp.org.vn/1200x630/Uploaded/2024/nfhcgaoogazs/2024_04_05/hai-phong-vs-thanh-hoa-1165-5641.jpg.webp)
+
+ The latest match of round 15 of V-League 2023-2024 took place at Lạch Tray stadium between Hải Phòng and Thanh Hóa, ending in a 2-0 win for the home team...
+The latest match of round 15 of V-League 2023-2024 took place at Lạch Tray stadium between Hải Phòng and Thanh Hóa, ending in a 2-0 win for the home team. The victory helps the home team temporarily escape the bottom of the table, while Thanh Hóa, after a series of five consecutive draws and losses, is moving further away from the top 3.
+Hải Phòng has temporarily escaped the relegation zone after defeating Thanh Hóa in round 15. Image: VPF
+Facing the pressure to win to avoid relegation, Hải Phòng entered the game eagerly and full of spirit as they quickly launched attacks on the opponent's half of the field. By the 15th minute, the home team had already opened the scoring from a penalty kick. Thanh Hóa defender handled the ball inside the box at 16m50, after reviewing VAR, the referee determined a penalty kick for Hải Phòng. Lucao's shot was saved by goalkeeper Xuân Hoàng, but Hữu Sơn's rebound shot brought the home team a goal.
+The match became more intense after the early goal from the home team as Thanh Hóa increased their attacking efforts. However, the solid defense and goalkeeper Đình Triệu helped maintain Hải Phòng's stronghold throughout the first half.
+The "eat and be eaten" match continued to be exciting in the remaining half. The Hải Phòng defense successfully thwarted Thanh Hóa's shots, especially Rimario - a former striker of the Cảng team... disappeared during this match.
+In the 81st minute, after a mistake by the Thanh Hóa defender, forward Bicou did not miss the opportunity to increase the score 2-0, sealing the win for the visiting team. With a series of five consecutive draws and losses, Thanh Hóa seems to be moving further away from the championship contention this season.
+CAO TƯỜNG
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Hải Phòng đấu với Thanh Hóa] Thua Hải Phòng 0-2, Thanh Hóa kéo dài mạch trận sa sút"
 date: Fri, 05 Apr 2024 20:00:00 +0700
 categories: entries VN
@@ -24,3 +47,5 @@ Thế trận “ăn miếng trả miếng” diễn ra hấp dẫn ở hiệp đ
 
 CAO TƯỜNG
 
+
+</details>

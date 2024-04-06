@@ -1,5 +1,28 @@
 ---
 layout: post
+title: "[The First Omen]  Why did The First Omen's R-rated scary scenes make father faint ..."
+date: Fri, 05 Apr 2024 20 00 00 +0700
+categories: entries VN llm
+---
+[ Why did The First Omen's R-rated scary scenes make father faint ...](https://kenh14.vn/sao-nu-co-canh-18-kinh-hoang-den-muc-khien-bo-ngat-xiu-ngay-giua-rap-20240405150048457.chn)
+
+> Nell Tiger Free, the lead actress of the horror film "The First Omen," shared with People magazine that her parents supported her in taking on the role, even though they are not fans of the genre and her mother has a weak heart. During the screening, her mother, who was sitting next to her, squeezed her hand due to fear, leaving fingernail marks on her body. The actress's father, who passed out during the filming of a frightening childbirth scene in the movie, is revealed to have a calm demeanor despite his anxiety. Free finds warmth and happiness in her parents' support, which helped her become "the backbone" of the film. In "The First Omen," Margaret, played by Free, experiences strange and supernatural occurrences after being sent from America to an orphanage in Rome, Italy. The movie contains many horror scenes, some of which were so terrifying that they required five rounds of censorship before being released in theaters.
+
+![ Why did The First Omen's R-rated scary scenes make father faint ...](https://kenh14cdn.com/zoom/600_315/203336854389633024/2024/4/5/photo1712303882268-1712303884293950925256.gif.png)
+
+ Sharing with People magazine, the lead actress of The First Omen - Nell Tiger Free revealed that she received full support from her parents for this major role, even though neither of them are fans of horror films. Free shared, "My mom doesn't like watching horror movies. She has a very weak heart, so she had to sit next to me during the screening. I remember having many fingernail marks on my body because she was squeezing my hand throughout the entire movie."
+
+The First Omen's lead actress's mother is quite brave until the end, while her father is even more anxious. "My dad passed out right when I gave birth to the baby. After that, he calmed down. He has diabetes and had to sit and catch his breath. He even demanded a Mars chocolate bar! My mom exclaimed at the time, 'Really? At this moment, when my daughter is giving birth? Really?'" Free tearfully chuckled while sharing.
+
+The frightening childbirth scene of Nell Tiger Free made her father pass out.
+Despite that, having the support of her parents and becoming "the backbone" makes the actress feel warm and happy. In The First Omen, Nell Tiger Free plays the role of Margaret, who is sent from America to Rome, Italy. At the new orphanage, Margaret gradually experiences strange things, from supernatural signs to people around her being mysteriously killed. Everything is said to originate from a little girl named Carlita, but the source of evil is more complicated than that.
+
+In The First Omen, there are many horror film scenes, some even causing viewers to be severely shocked due to their "corpse-like" nature. Besides the lead actress's childbirth scene, the movie also contains other terrifying scenes, making it necessary for the censorship process to be conducted five times before being released in theaters.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [The First Omen] Sao nữ The First Omen có cảnh 18+ kinh hoàng đến mức bố ngất ..."
 date: Fri, 05 Apr 2024 20:00:00 +0700
 categories: entries VN
@@ -24,3 +47,5 @@ Tuy vậy, việc được bố mẹ ủng hộ, trở thành "hậu phương" k
 
 Trong The First Omen, có nhiều cảnh phim kinh dị, thậm chí khiến khán giả sốc nặng vì mang yếu tố "hành xác". Bên cạnh cảnh sinh con của nữ chính, phim còn có nhiều cảnh kinh hoàng khác, khiến việc kiểm duyệt được thực hiện tận 5 lần mới có thể ra rạp.
 
+
+</details>

@@ -1,5 +1,29 @@
 ---
 layout: post
+title: "🔥🔥 [Werder Bremen]  Werder Bremen ends losing streak in turbulent encounter with ..."
+date: Fri, 05 Apr 2024 21 00 00 +0200
+categories: entries DE llm
+---
+[ Werder Bremen ends losing streak in turbulent encounter with ...](https://www.weser-kurier.de/werder/profis/werder-bremen-beendet-pleitenserie-in-turbulentem-duell-mit-frankfurt-doc7uvdqjn4y3rbf6zo5v6)
+
+> Eintracht Frankfurt and Werder Bremen drew 1-1 in their Bundesliga match on Saturday. The first half saw few goals due to struggling teams and loose pitch conditions, but both had chances, with Ragnar Ache hitting the post for Frankfurt and Marmoush missing twice for Bremen. In the second half, Bremen's Pieper was subbed off early due to injury, and Frankfurt equalized through Tuta's header, though Veljkovic was deemed fouled in the build-up. Bremen then took the lead with Veljkovic scoring a rebound from Ducksch's free-kick. Stage received a straight red for fouling Bahoya, and Silva Melo followed suit for Frankfurt with a dangerous challenge on Agu. Despite playing with ten men for the last 15 minutes, Bremen held on for a point, but they will miss Stage and Friedl in their next match against league leaders Bayer Leverkusen due to red and yellow card suspensions, respectively.
+
+![ Werder Bremen ends losing streak in turbulent encounter with ...](https://www.weser-kurier.de/resources/028c-1a9524cce06a-fda16eca9904-1000/format/large/frankfurt_05.04.2024_xjfx_1.bl_eintracht_frankfurt_-_sv_werder_bremen_v.l._pharrell_nmandi_collins_eintracht_frankfur.jpeg)
+
+ Eintracht Frankfurt and Werder Bremen shared the points in a 1-1 draw at Deutsche Bank Park on Saturday. Milos Veljkovic scored for Bremen (62.), while Tuta equalized for Frankfurt (77.). The home side played the last 15 minutes with ten men after Lucas Silva Melo was sent off (87.).
+
+The first half saw both teams struggle to find their rhythm on a loose pitch, but there were still chances. Ragnar Ache hit the post for Frankfurt (25.), while Marmoush missed two good opportunities for Bremen (31., 42.). The game became more open towards the end of the first half, with both teams creating chances, but neither could find the back of the net.
+
+The second half started badly for Bremen as Pieper had to be substituted due to a recurring foot injury (51.). Frankfurt pressed for an equalizer and thought they had one when Tuta headed home from a corner, but Veljkovic was adjudged to have been fouled in the build-up. However, Bremen took the lead just moments later when Ducksch's free-kick found Stage, whose shot was parried by Trapp, only for Veljkovic to score the rebound (62.).
+
+Bremen were reduced to ten men after Stage received a straight red card for a foul on Bahoya (73.), and Frankfurt equalized shortly after through Tuta's header. Silva Melo was then sent off for a dangerous challenge on Agu, leaving both teams with ten men for the final stages of the game (87.).
+
+Despite playing with ten men for the last 15 minutes, Bremen held on for a well-deserved point and will take confidence into their next match against league leaders Bayer Leverkusen. However, they will be without Stage (red card) and Friedl (fifth yellow card) for that game.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Werder Bremen] Werder Bremen beendet Pleitenserie in turbulentem Duell mit ..."
 date: Fri, 05 Apr 2024 21:00:00 +0200
 categories: entries DE
@@ -54,3 +78,5 @@ Kurz darauf war für ihn Feierabend, er wurde durch Woltemade ersetzt. Auf dem P
 
 Der Fight ging weiter, fand aber keinen Sieger mehr, wenngleich sich Werder schon als moralischer Sieger bezeichnen durfte und durchaus mit Selbstbewusstsein dem nächsten Spiel bei Tabellenführer Bayer Leverkusen entgegenblicken darf. Am 14. April werden dann allerdings Stage (Rot) und Friedl (fünfte Gelbe Karte) fehlen.
 
+
+</details>
