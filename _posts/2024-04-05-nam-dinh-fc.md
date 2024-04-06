@@ -1,5 +1,34 @@
 ---
 layout: post
+title: "[Nam Định FC]  Bình Định shocks Nam Định."
+date: Fri, 05 Apr 2024 20 00 00 +0700
+categories: entries VN llm
+---
+[ Bình Định shocks Nam Định.](https://vnexpress.net/binh-dinh-thang-soc-nam-dinh-4731075.html)
+
+> Bình Định secured a 4-2 victory over Nam Định in the V-League 2023-2024, becoming the first team to defeat Nam Định in both matches. The win allowed Bình Định to maintain their fourth place in the standings with 25 points, while Nam Định still leads with 32 points but has had their lead reduced to four points by Cong an Ha Noi. In this match, Bình Định was missing a defender due to suspension and set up a defensive formation against Nam Định's strong attacking line. However, Leonardo Melo of Bình Định scored all four goals for his team through impressive technical moves and counterattack opportunities. Nam Định struggled to find the net, only managing to score through individual brilliance or defensive errors. The match was filled with missed scoring opportunities from both teams, making the Night Wolf V-League 2023-2024 competition more thrilling.
+
+![ Bình Định shocks Nam Định.](https://vcdn1-thethao.vnecdn.net/2024/04/05/nam-dinh-binh-dinh-vong-15-v-l-5456-5805-1712324394.jpg?w=1200&h=0&q=100&dpr=1&fit=crop&s=b0fgsKKKYWnry1jLpWf9zA)
+
+ A 4-2 victory at Thiên Trường Stadium today helps Bình Định become the first team to defeat Nam Định in both matches of the V-League 2023-2024. The 4-2 win at Thiên Trường Stadium today helps Bình Định become the first team to defeat Nam Định in both matches of the V-League 2023-2024. In the first half at Quy Nhơn field, Bình Định turned the tables and won 2-1 against Nam Định. By round 15, the home team continued to surprise despite their opponent's enthusiasm. In the previous match, Nam Định had an emotional comeback victory of 2-1 over former champion Hà Nội FC and maintained their lead in the standings.
+
+In this match, Bình Định was missing foreign defender Marlon Rangel due to a red card suspension. Coach Bùi Đoàn Quang Huy set up a formation with five defenders to block Nam Định's strongest attacking line, which has scored 32 goals so far. In reality, they almost completely disconnected strikers Rafaelson and Hendrio throughout the match. Moreover, the visiting team's forward line unexpectedly played brilliantly due to Leonardo Melo's outstanding performance.
+
+Throughout the game, Leonardo had several impressive technical dribbling moves that left Nam Định's defenders helpless. Whenever the home side hoped to equalize, Leonardo took advantage of counterattack opportunities to score goals. Leonardo Melo (second from left) marked his name on all four goals for Bình Định in their 4-2 win over Nam Định.
+
+At the 15th minute, Leonardo controlled the ball and sent it towards Van Duc, who silently tapped it into the near post to open the scoring. In the 53rd minute, Brazilian striker Leonardo skillfully received the ball in a tight angle within the penalty area and passed it to Van Thuan for the third goal. At the 74th minute, Leonardo dribbled past Tran Van Kien on the left flank and then kicked the ball over the goalkeeper Tran Nguyen Manh. Despite facing tall defender Lucas Alves and a narrow angle of approximately 90 degrees, Leonardo still found space to score the fourth goal for the visiting team.
+
+Meanwhile, Nam Định struggled to find the net, only managing to do so through individual brilliance or defensive errors. In the 30th minute, Trinh Duc Loi lost possession in midfield, allowing Van Toan to dribble into the penalty area. Phan Ngoc Tin attempted to clear the ball but accidentally set up Hendrio at the far post, who shot it into the right corner, making it 1-1 and leaving Van Lam standing motionless. In the 66th minute, Van Toan brought the ball to the edge of the penalty area, about 18 meters away from the goalpost. Hendrio hesitated, missing an opportunity for Nam Định to take the lead.  Into the upper left corner, leaving Van Lam with no chance to save it, reducing the score to 2-3. Leonardo (in a black shirt) skillfully dribbled past Van Kiên and Nguyen Manh to score the goal, fixing the score at 4-2. Image: Dung Dinh Xen in the midst of consecutive scoring opportunities created by both teams. Rafaelson might regret his header in the 36th minute being blocked by Van Duc before the goal line, or Tran Ngoc Son's unsuccessful confrontation with Dang Van Lam in the 50th minute. Meanwhile, Binh Dinh could have scored more than four goals if Vu Minh Tuan, Nguyen Hung Thien Duc, or Alan Sebastiao had finished accurately in the open space during the second half. The 4-2 victory helps Binh Dinh maintain their fourth place with 25 points. Nam Dinh still leads with 32 points but has had their lead reduced to four points by Cong an Ha Noi, making the Night Wolf V-League 2023-2024 competition more thrilling.
+
+Starting lineups:
+Nam Dinh: Tran Nguyen Mahn, Duong Thanh Hao, Lucas Alves, Nguyen Phong Hong Duy, Van Vi, Tran Van Kien, Tran Van Cong, Ly Cong Hoang Anh, Van Toan, Hendrio Araujo, Rafaelson
+Binh Dinh: Dang Van Lam, Phan Ngoc Tin, Tran Dinh Trong, Van Duc, Adriano Schmidt, Trinh Duc Loi, Pham Van Thanh, Cao Van Trien, Do Van Thuan, Leonardo Melo, Alan Sebastiao.
+Hiếu Lương
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Nam Định FC] Bình Định thắng sốc Nam Định"
 date: Fri, 05 Apr 2024 20:00:00 +0700
 categories: entries VN
@@ -40,3 +69,5 @@ Bình Định: Đặng Văn Lâm, Phan Ngọc Tín, Trần Đình Trọng, Văn 
 
 Hiếu Lương
 
+
+</details>
