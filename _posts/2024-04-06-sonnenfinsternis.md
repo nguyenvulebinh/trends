@@ -1,5 +1,30 @@
 ---
 layout: post
+title: "[Sonnenfinsternis]  What a total solar eclipse means for aviation ..."
+date: Sat, 06 Apr 2024 11 00 00 +0200
+categories: entries DE llm
+---
+[ What a total solar eclipse means for aviation ...](https://www.aerotelegraph.com/was-die-totale-sonnenfinsternis-fuer-die-luftfahrt-bedeutet)
+
+> The United States is experiencing excitement over a rare solar eclipse occurring on April 8, which will pass over 13 states. The next similar event won't happen until August 12, 2045. The Federal Aviation Administration has warned of potential air travel disruptions, particularly in the path of totality, where increased airport traffic and congested tarmacs may cause delays. Pilots are advised to prepare for darkened flight conditions and low visibility. Delta Air Lines is offering special flights for passengers to view the eclipse from the air, operating two flights from Austin and Dallas to Detroit.
+
+![ What a total solar eclipse means for aviation ...](https://cdn.aerotelegraph.com/production/uploads/2024/04/totale_sonnenfinsternis_usa_airbus_a220.jpg)
+
+ The United States are in a state of eclipse fever as on April 8, the shadow of the moon will pass over 13 states, resulting in a total solar eclipse. People are traveling to cities such as Buffalo, Indianapolis, and Dallas for optimal viewing, as those who miss this opportunity will have to wait more than 20 years for the next one. The next favorable situation will occur on August 12, 2045, when a wider lunar shadow crosses the USA from Pacific to Atlantic due to a new moon at perigee, according to the German Aerospace Center (DLR).
+
+Implications for Air Travel:
+The Federal Aviation Administration (FAA) warns of delays, reroutes, and holding patterns, especially along the path of totality. Airports in that region may experience increased traffic, congested tarmacs, and delays. The Air Line Pilots Association Alpa advises pilots to prepare for potentially very dark conditions during the total eclipse, similar to nighttime with full moon visibility, and to expect nighttime landing conditions. They recommend asking for airport lighting and other visual aids to be activated in low ambient light. Twilight-like conditions are expected shortly before and after totality.
+
+Special Flights by Delta Air Lines:
+Delta Air Lines has organized two special flights so passengers can view the eclipse as long as possible. One flight, operated by an Airbus A220, will go from Austin to Detroit, while the other, using an A321 Neo, will fly from Dallas to Detroit.
+
+Experiencing a solar eclipse from a plane:
+[Image source provided]
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Sonnenfinsternis] Was die totale Sonnenfinsternis für die Luftfahrt bedeutet ..."
 date: Sat, 06 Apr 2024 11:00:00 +0200
 categories: entries DE
@@ -30,3 +55,5 @@ Delta Air Lines hat zwei Sonderflüge aufgelegt, die es den Reisenden ermöglich
 
 Wie eine Sonnenfinsternis über den Wolken aussieht, sehen Sie hier:
 
+
+</details>
