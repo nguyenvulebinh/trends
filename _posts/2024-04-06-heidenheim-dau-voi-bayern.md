@@ -1,5 +1,28 @@
 ---
 layout: post
+title: "🔥🔥 [Heidenheim đấu với Bayern]  Bayern Munich officially concede in the title race..."
+date: Sat, 06 Apr 2024 21 00 00 +0700
+categories: entries VN llm
+---
+[ Bayern Munich officially concede in the title race...](https://dantri.com.vn/the-thao/bayern-munich-chinh-thuc-giuong-co-trang-o-cuoc-dua-vo-dich-bundesliga-20240406225326796.htm)
+
+> The Bundesliga title race took an unexpected turn when Bayern Munich lost their match against Heidenheim with a final score of 3-2. Prior to the game, Bayern Munich was trailing league leader Bayer Leverkusen by 13 points with only seven matches left. Despite leading 2-0 at halftime, Bayern Munich conceded three goals in the second half, causing them to lose valuable points. This defeat has significantly reduced Bayern Munich's chances of retaining their Bundesliga title, as Bayer Leverkusen extended their lead to an impressive 16 points. With the German team now focusing on the Champions League, they will face Arsenal in the quarterfinals on April 10th.
+
+![ Bayern Munich officially concede in the title race...](https://cdnphoto.dantri.com.vn/a85WPBPR9Y8CUSPxPFWcA4O2LzY=/zoom/1200_630/2024/04/06/afa1d7d7d3c238823e557a1088a7d1e6-crop-1712418672031.jpeg)
+
+ (Public opinion) - The Bundesliga's title race this season is almost over, with Bayern Munich stunningly losing to the underestimated Heidenheim team...
+Before their away match against Heidenheim, scheduled for the evening of 6/4 (Vietnam time), Bayern Munich was still 13 points behind the league-leading Bayer Leverkusen with only 7 matches remaining.
+However, Thomas Tuchel's squad played with determination and led the home team 2-0 at halftime.
+Despite leading by two goals, Bayern Munich (in white) surprisingly lost to the home team Heidenheim (Image: Getty).
+Nevertheless, Bayern Munich's two-goal lead made their players appear to be dreaming in the second half, allowing the home team to stage an incredible comeback. Within just one minute (from the 50th to the 51st minute), Heidenheim scored two quick goals by Kevin Zessa and Tim Kleindist, tying the match at 2-2.
+Tragedy struck again when Bayern Munich's defense played poorly, allowing Tim Kleindist to score his second goal in the 79th minute, securing a shocking 3-2 comeback win for the home team.
+By losing to a team that is currently ranked 10th in the standings, Bayern Munich seems to have "surrendered" in the Bundesliga title race, as Bayer Leverkusen won their match against Union Berlin 1-0 and extended their lead to 16 points.
+At this point, Thomas Tuchel's team's realistic goal will be the Champions League, with the German team facing Arsenal in the quarterfinals on April 10th.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Heidenheim đấu với Bayern] Bayern Munich chính thức 'giương cờ trắng' ở cuộc đua vô địch ..."
 date: Sat, 06 Apr 2024 21:00:00 +0700
 categories: entries VN
@@ -26,3 +49,5 @@ Thảm họa tiếp tục xảy ra khi hàng phòng ngự của đội khách ch
 
 Lúc này, mục tiêu khả dĩ của thầy trò HLV Thomas Tuchel sẽ là đấu trường Champions League, khi đội bóng nước Đức sẽ có trận lượt đi vòng tứ kết với Arsenal vào ngày 10/4 tới đây.
 
+
+</details>
