@@ -1,5 +1,28 @@
 ---
 layout: post
+title: "🔥🔥 [Eintracht Frankfurt]  Less mood? Toppmöller appeals to fans of Eintracht..."
+date: Fri, 05 Apr 2024 21 00 00 +0200
+categories: entries DE llm
+---
+[ Less mood? Toppmöller appeals to fans of Eintracht...](https://www.hessenschau.de/sport/fussball/eintracht-frankfurt/weniger-stimmung-toppmoeller-appelliert-an-fans-von-eintracht-frankfurt-v1,eintracht-stimmung-100.html)
+
+> Following numerous stadium bans imposed on Eintracht Frankfurt fans involved in the Naples riots, the first home match against Werder Bremen will likely have a subdued atmosphere due to the absence of some fan groups. The Ultras, who previously criticized the DFB and government for their actions, announced a shift in focus towards fostering friendships within the group rather than stadium displays. Coach Dino Toppmöller has expressed concern over the potential decrease in support and has urged the remaining fans to unite and back the team as they face tough opponents in the league's final stretch. Hoping to spark audience engagement, Toppmöller plans on having his team take the initiative on the pitch to win over any sparse crowd with a strong performance.
+
+![ Less mood? Toppmöller appeals to fans of Eintracht...](https://www.hessenschau.de/sport/fussball/eintracht-frankfurt/imago-toppmoeller-110~_t-1712307669090_v-16to9__retina.jpg)
+
+ After numerous stadium bans due to the Naples riots, parts of the fan scene will be absent for the first time when facing Werder Bremen.
+More than a year after the severe riots surrounding the Champions League knockout stage at SSC Naples, the repercussions of that dark afternoon will likely be felt in Frankfurt for the first time on Friday evening. Due to the German Football Association (DFB) imposing stadium bans on numerous Eintracht Frankfurt fans who were involved in the riots, the usually raucous curve is expected to be quieter against Werder Bremen.
+Around the recent home game against Union Berlin (0:0), the Ultras announced a change in era and referred to the match as the last "normal" home game. The fan group, which criticized the actions of the DFB and government as arbitrary, intends to focus more on themselves as a group and fostering friendships rather than putting on a show in the stadium. However, it remains unclear what this entails and how support will look moving forward. What is certain, though, is that the atmosphere against Bremen will likely be different than usual despite floodlights and an evening match.
+Toppmöller appeals to fans
+A possible change in routine even prompted a response from coach Dino Toppmöller. The 43-year-old, who usually praises the fans and emphasizes the importance of the symbiotic relationship between the team and supporters, expressed serious concerns. "Support should come from the entire environment," he stated. With Eintracht facing four of the top five teams in the league in the season's final stretch and aiming to secure sixth place, Toppmöller hopes that everyone will unite for this goal.
+However, with the significant fan support potentially dwindling, Toppmöller urged the stands to come together. "We all want to see international football here next season. Everyone should pull in the same direction." Toppmöller, who does not plan on preparing his players for the altered atmosphere, hopes for understanding. "Playing in front of 58,000 football-crazed fans at home always gives us a boost."
+Video clip: Eintracht's press conference before the Bremen match
+If organized support, as it seems, is absent or more subdued this time around, Toppmöller trusts in the power of football. "We will try to take the initiative and win over the crowd. Our goal is to spark a connection with the audience through a strong performance and emotionally engage them." There have been instances at Eintracht where this interaction between team and stands functioned seamlessly.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Eintracht Frankfurt] Weniger Stimmung? Toppmöller appelliert an Fans von Eintracht ..."
 date: Fri, 05 Apr 2024 21:00:00 +0200
 categories: entries DE
@@ -30,3 +53,5 @@ Funke soll überspringen
 
 Sollte der organisierte Support, wonach es aussieht, dieses Mal ausbleiben oder zurückhaltender ausfallen, setzt Toppmöller auf die Macht des Fußballs. "Wir werden versuchen, in Vorleistung zu gehen und die Zuschauer auf unsere Seite zu ziehen. Für uns geht es darum, dass wir den Funken überspringen lassen und durch eine gute Leistung das Publikum emotionalisieren." Es gab Zeiten bei der Eintracht, da funktionierte das Wechselspiel zwischen Team und Kurve ohnehin genauso.
 
+
+</details>

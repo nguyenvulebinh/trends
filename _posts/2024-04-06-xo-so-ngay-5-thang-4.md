@@ -1,5 +1,25 @@
 ---
 layout: post
+title: "[Xổ số ngày 5 tháng 4]  XSNT 5/4 - Lottery results of Ninh Thuan province on Thursday, April 5th, 2024"
+date: Sat, 06 Apr 2024 07 00 00 +0700
+categories: entries VN llm
+---
+[ XSNT 5/4 - Lottery results of Ninh Thuan province on Thursday, April 5th, 2024](https://voh.com.vn/xsnt-xo-so-ninh-thuan/xsnt-5-4-ket-qua-xo-so-ninh-thuan-hom-nay-thu-6-ngay-5-4-2024-522084.html)
+
+> The text announces the live broadcast of the Ninh Thuận lottery result for April 5, 2023, at 17:15 by the Ninh Thuận XSKT Company. The text also provides information about the prize structure of the Ninh Thuận lottery, which includes an 11-tier system with prizes ranging from a special prize of 2,000,000,000 VND to an encouragement prize of 6,000,000 VND. The weekly lottery draw schedule for the Central region's lottery companies is also provided in the text.
+
+![ XSNT 5/4 - Lottery results of Ninh Thuan province on Thursday, April 5th, 2024](https://image.voh.com.vn/voh/thumbnail/2024/04/05/Xo-so-Ninh-Thuan.png)
+
+ Direct broadcast of Ninh Thuận lottery today at 17h15, Ninh Thuận lottery result of 5th April. Fast and accurate Ninh Thuận lottery result of 5th April. Direct broadcast of Ninh Thuận lottery result today - Ninh Thuận lottery of 5th April, year 2023. The Sixth lottery draw of the week is held every week at 17:15 by Ninh Thuận XSKT Company. The Ninh Thuận lottery results are announced from prize eight to the special prize. Ninh Thuận lottery 5/4 - Ninh Thuận lottery result of 5th April, 2024 - Today's Ninh Thuận lottery result on 5th April, year 2023. Watch the live broadcast of XSNT on the sixth day of 5th April, 2024, lottery results of the three regions North, Central and South at Youtube channel Đại Phát Lottery.
+
+Ninh Thuận lottery prize structure - Miền Trung Lottery With a lottery ticket price of 10,000 VND including 6 numbers, there will be an 11-tier prize structure as follows: Prize Special prize (6 numbers) 01 2,000,000,000 VNĐ First prize (5 numbers) 10 30,000,000 VNĐ Second prize (5 numbers) 10 15,000,000 VNĐ Third prize (5 numbers) 20 10,000,000 VNĐ Fourth prize (5 numbers) 70 3,000,000 VNĐ Fifth prize (4 numbers) 100 1,000,000 VNĐ Sixth prize (4 numbers) 300 400,000 VND Seventh prize (3 numbers) 1000 200,000 VND Eighth prize (2 numbers) 10,000 100,000 VND Special encouragement prize: Wrong one number in the ten thousand digit compared to special prize 9 50,000,000 VND Encouragement prize: Wrong 1 number at any digit compared to special prize 45 6,000,000 VND
+
+Weekly lottery draw schedule - Miền Trung Lottery Weekly lottery draw schedule of the Central region's lottery companies Tuesday: Phú Yên (XSPY), Thừa Thiên Huế (XSTTH). Wednesday: Đắk Lắk (XSDLK), Quảng Nam (XSQNA). Thursday: Đà Nẵng (XSDNA), Khánh Hòa (XSKH). Friday: Bình Định (XSBDI), Quảng Trị (XSQT), Quảng Bình (XSQB). Saturday: Gia Lai (XSGL), Ninh Thuận (XSNT). Sunday: Kon Tum (XSKT), Khánh Hòa (XSKH), Thừa Thiên Huế (XSTTH). Good luck.  lucky!
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Xổ số ngày 5 tháng 4] XSNT 5/4 - Kết quả xổ số Ninh Thuận hôm nay thứ 6 ngày 5/4/2024"
 date: Sat, 06 Apr 2024 07:00:00 +0700
 categories: entries VN
@@ -50,3 +70,5 @@ Chủ Nhật: Kon Tum ( XSKT ), Khánh Hòa ( XSKH ), Thừa Thiên Huế ( XSTT
 
 Chúc các bạn may mắn!
 
+
+</details>
