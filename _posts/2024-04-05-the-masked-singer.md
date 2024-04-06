@@ -1,0 +1,70 @@
+---
+layout: post
+title: "🔥🔥 [The masked singer] 'The Masked Singer' 2024 -Elgonia erwartet dich: Lies hier alles ..."
+date: Fri, 05 Apr 2024 15:00:00 +0200
+categories: entries DE
+---
+['The Masked Singer' 2024 -Elgonia erwartet dich: Lies hier alles ...](https://www.prosieben.de/serien/the-masked-singer/news/elgonia-erwartet-dich-lies-hier-alles-was-du-wissen-musst-358214)
+
+!['The Masked Singer' 2024 -Elgonia erwartet dich: Lies hier alles ...](https://mim.p7s1.io/pis/ld/aaebzChLCVyZ-c1vEwXZAanB-DJ78rnq2V2gRWTHzVV6NywNWMSJCEGmZ4YSENP-WRL0b9lo2zmFQhUvr1Fm1k5uzSl-RA9juGZkOfv6TQQRDTlx7Uxx8a03FLmuaRJUjzZ01f_jSkM/profile:original?w=1024)
+
+Sie kann es kaum erwarten, dem Winter ein Ende zu setzen und den Frühling herbeizuzaubern. Auf der "The Masked Singer"-Bühne will sie ihren Zauber ...
+
+Sie kann es kaum erwarten, dem Winter ein Ende zu setzen und den Frühling herbeizuzaubern. Auf der "The Masked Singer"-Bühne will sie ihren Zauber verbreiten.
+
+Anzeige
+
+Du willst noch mehr von "The Masked Singer"?
+
+Hier geht's zu allen Staffeln und ganzen Folgen auf Joyn.
+
+Das Wichtigste in Kürze Am 6. April startete die 10. Staffel "The Masked Singer" auf ProSieben und Joyn.
+
+Eine der neuen Masken ist die Elgonia.
+
+Alle Infos über sie und ihre Auftritte findest du hier.
+
+Wer ist Elgonia? Tipps und Spekulationen
+
+Folge 1: Es wird gefühlvoll und romantisch bei "The Masked Singer" 2024: Elgonia wagt sich an Weltstar Seals Ballade "Kiss from a rose". Elgonia liegt einen stimmgewaltigen Auftritt hin und lässt sich auch von den hohen Tönen dieses Megahits aus den 90er Jahren nicht aus dem Konzept bringen. Dafür gibt es im Anschluss vom Publikum viel Applaus. "Zauberhaft." Diesem Urteil von Palina ist nichts hinzuzufügen.
+
+Angesichts dieser bombastischen Performance ist sich das Rate-Team einig: Es muss sich um einen Profi handeln. Die Namen von Mieze Katz von der Musikgruppe "Mia", "No Angels"-Star Lucy Diakovska und Peter Maffay fallen unter anderem.
+
+Im Clip: Elgonia verzaubert mit "Kiss From A Rose" von Seal
+
+Anzeige
+
+Anzeige
+
+Das sind mögliche Indizien zu Elgonia
+
+Elgonia liebt den Frühling.
+
+Aufbruch und Neuanfang haben in ihrem Leben schon immer eine große Rolle gespielt.
+
+Im Indizienclip wird ein Handventilator gezeigt.
+
+Ein Herz am Himmel mit den Farben blau, gelb und rot wird als weiteres Indiz gezeigt.
+
+Das sind die Tipps der Fans aus der Joyn-App
+
+Elgonia läutet mit ihrer Magie und ihrem Drachen den Frühling ein. Wen vermuten die Zuschauer:innen von "The Masked Singer" 2024 unter der Maske?
+
+Judith Williams (40%) Nadja Benaissa (28%) Senta-Sofia Oonagh Delliponti (4%) Conchita Wurst (3%) Ruth Moschner (2%)
+
+(Stand: 6. April 2024)
+
+Anzeige
+
+Na, schon Frühlingsgefühle?
+
+Zusammen mit ihrem treuen goldenen Drachen hat die Frühlingsbotin Elgonia das verborgene Reich Sakurara verlassen, um uns und die Natur aus dem Winterschlaf zu erwecken. Und trotz Frühjahrsmüdigkeit, den Eisheiligen und dem Frühjahrsputz ist sie optimistisch, alle bei "The Masked Singer" zu verzaubern.
+
+"The Masked Singer" - die 10. Staffel, ab 6. April 2024, immer samstags live um 20:15 Uhr auf ProSieben und auf Joyn.
+
+Anzeige
+
+Wer wird ihrer Magie widerstehen?
+
+Sieh dir hier an, welche Masken sich neben Elgonia ins Finale kämpfen wollen:
+
