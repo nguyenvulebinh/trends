@@ -1,5 +1,31 @@
 ---
 layout: post
+title: "[Cole Brings Plenty]  Cole Brings Plenty: US TV Actor Dies at 27 Years Old"
+date: Sat, 06 Apr 2024 17 00 00 +0200
+categories: entries DE llm
+---
+[ Cole Brings Plenty: US TV Actor Dies at 27 Years Old](https://www.stern.de/lifestyle/leute/cole-brings-plenty--us-seriendarsteller-stirbt-mit-nur-27-jahren-34604948.html)
+
+> Indigenous actor Cole Brings Plenty, known for his role in the "Yellowstone" spin-off "1923," has died at the age of 27. His body was found in a wooded area near an abandoned car in Johnson County, Kansas, according to local police reports on April 5. Brings Plenty had been reported missing on April 2, and allegations of domestic violence were made against him on the same day. The exact circumstances surrounding his death are currently under investigation. In addition to acting, Brings Plenty also worked as a model. His father, Joe Brings Plenty, confirmed his son's passing in an Instagram statement. The Telephone Counseling Service offers help for those experiencing depression and suicidal thoughts at the toll-free number 0800/111 0 111.
+
+![ Cole Brings Plenty: US TV Actor Dies at 27 Years Old](https://image.stern.de/34604952/t/G-/v1/w1440/r1.7778/-/06--us-seriendarsteller-stirbt-mit-nur-27-jahren---16-9---spoton-article-1064388.jpg)
+
+ Mourning for Cole Brings Plenty: The indigenous actor has died at the age of 27, as reported by the police in the US state of Kansas.
+Cole Brings Plenty had appeared in front of the camera for the series "1923," a spin-off of the successful production "Yellowstone."
+Mourning for Cole Brings Plenty: The indigenous actor has died at the age of 27, as reported by the police in the US state of Kansas.
+The indigenous American actor Cole Brings Plenty has passed away. The actor, who appeared in two episodes of the "Yellowstone" spin-off "1923," died at the age of only 27, as reported by the local police in Johnson County in the US state of Kansas on the evening of April 5 (local time) on Facebook. Just a few days before his death, according to the US portal "Page Six," there had been allegations of domestic violence against the indigenous actor.
+Drama surrounding the "1923" actor: What happened in recent days?
+Much is still unclear about the tragic death of Cole Brings Plenty. The local police in the US state of Kansas write on their Facebook page that the body of the deceased was found on April 5 in a wooded area near an abandoned car. The exact circumstances of his death are currently the subject of further investigations.
+Cole Brings Plenty had been reported missing on April 2. On the same day, allegations of domestic violence were made against the actor. "We have identified him as a suspect, have sufficient suspicion for his arrest and have issued a warning to local authorities," wrote the Lawrence Kansas Police Department at the time, according to "Page Six." The officers had previously followed up on tips about a woman who was heard screaming for help.
+In addition to his work on the "Yellowstone" spin-off "1923," Cole Brings Plenty also appeared in the series "Into the Wild Frontier." He also worked as a model. His uncle Mo Brings Plenty (54), on the other hand, appears in the mother series "Yellowstone" alongside series star Kevin Costner (69) and has already been seen in 39 episodes of the Neo-Western series.
+Father shares heartbreaking post on Instagram
+The father of the deceased, Joe Brings Plenty, has also spoken out with a moving Instagram statement. "I am deeply saddened to confirm that my son Cole has been found and is no longer with us [...]. This week I have learned how many people knew the good in Cole's heart and loved him," it reads there. At the same time, the grieving father thanks all the people "who stood by our side in the search for my son."
+Help for depression and suicidal thoughts is available from the Telephone Counseling Service at the toll-free number: 0800/111 0 111.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Cole Brings Plenty] Cole Brings Plenty: US-Seriendarsteller stirbt mit nur 27 Jahren"
 date: Sat, 06 Apr 2024 17:00:00 +0200
 categories: entries DE
@@ -30,3 +56,5 @@ Joe Brings Plenty, der Vater des Verstorbenen, hat sich indes mit einem bewegend
 
 Hilfe bei Depressionen und Suizidgedanken bietet die Telefonseelsorge unter der kostenlosen Rufnummer: 0800/111 0 111.
 
+
+</details>
