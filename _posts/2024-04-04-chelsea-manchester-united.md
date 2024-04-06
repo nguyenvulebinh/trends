@@ -1,5 +1,31 @@
 ---
 layout: post
+title: "🔥🔥 [Chelsea Manchester United]  Drawn to the 90+7th minute, Manchester United still lost to Chelsea."
+date: Fri, 05 Apr 2024 06 00 00 +0700
+categories: entries VN llm
+---
+[ Drawn to the 90+7th minute, Manchester United still lost to Chelsea.](https://tuoitre.vn/dan-3-2-den-phut-90-7-man-united-van-thua-nguoc-chelsea-20240405042451618.htm)
+
+> Chelsea won the match 4-3 against Manchester United in the Premier League's 31st round. Gallagher scored the first goal for Chelsea, followed by an equalizer from Garnacho and a header from Bruno Fernandes, making it 2-1 in favor of Manchester United. However, Chelsea dominated the game with numerous attacking opportunities but failed to capitalize on them. In the second half, Garnacho scored again, extending Manchester United's lead to 3-1. Despite bringing on several substitutes, Manchester United retreated defensively, allowing Chelsea to take control of the game. Chelsea managed to score three goals in the final minutes of the match, with Dalot scoring the winner in the 90+7th minute and Palmer equalizing in the 90+11th minute, taking the game into extra time. Despite having more possession and opportunities, Chelsea showed determination and resilience to secure a 4-3 victory. The loss was a significant setback for Manchester United, who are now five points behind Chelsea in the Premier League standings.
+
+![ Drawn to the 90+7th minute, Manchester United still lost to Chelsea.](https://cdn1.tuoitre.vn/zoom/600_315/471584752817336320/2024/4/5/2024-04-04t195152z1197917218up1ek441j6e4mrtrmadp3soccer-england-che-mun-report-17122648492751958585852-4-271-792-1775-crop-1712264975002666040609.jpg)
+
+ This morning (Vietnam time), Chelsea defeated Manchester United 4-3 at home in the 31st round of the Premier League, in the most unbelievable scenario possible. Gallagher scored the opening goal for Chelsea - REUTERS
+
+Right up until the 90+7 minute of the match, many Western media outlets were still in shock: "Manchester United completely lost control against Chelsea" while broadcasting the game. However, just three minutes later, Chelsea managed to turn the tables. Coach Ten Hag surprisingly subbed off Rashford during the game, stating that he wanted to ensure that their star striker would be in top form for their upcoming match against Liverpool at the end of the week.
+
+Without Rashford, Antony was chosen as the main forward on the right wing, with Garnacho on the left wing supporting Hojlund in the center position. However, before Manchester United could implement any attacking strategies, they had already conceded a goal in the 4th minute. From the right wing, Gusto sent a cross that landed at Gallagher's feet in front of the Manchester United goal. The English striker shot accurately to beat Onana and open the scoring for Chelsea.
+
+In the 18th minute, Antony made a mistake by tripping over and missing an opportunity to score, allowing Garnacho to take advantage of the situation and score the equalizer in a unique way, making it clear that Manchester United had regained their confidence. Just five minutes later, Bruno Fernandes scored with a precise header from Dalot's cross, tying the game for the home team.
+
+In contrast, Chelsea continued to dominate the match with an offensive formation throughout the game. They were unlucky as several attacking opportunities were missed. Among them was Gallagher's shot that hit the post at the end of the first half. The second half was similar to the first, with both teams focusing on attack and pressing hard on defense.
+
+Manchester United took advantage of their chances better and led 2-1 in the 67th minute. Garnacho scored again with a header from Antony's excellent cross. After conceding that goal, Coach Ten Hag made some changes to the team.  Pochettino made a series of changes, bringing on Sterling, Chukwuemeka, Madueke, among others. However, at this point, Man United had already retreated defensively, allowing Chelsea to take complete control of the game. In the 86th minute, Garnacho entered the field, receiving loud cheers from the crowd as he took on the Manchester United defense. Despite having numerous opportunities, Chelsea's attacks failed to yield any significant results. Just as it seemed that Man United would escape with a lucky draw, Dalot once again became the hero by scoring a goal in the 90+7th minute. The referee initially signaled for a penalty kick after Madueke was brought down by Dalot, but the decision was overturned after a VAR review. Under immense pressure, Palmer managed to score an equalizer in the 90+11th minute, taking the game into extra time. Despite having more possession and opportunities, Chelsea's players showed great determination and resilience to secure a 4-3 victory. The loss was a major setback for Man United, who are now five points behind Chelsea in the Premier League standings. The poor performance of Man United's star players was also a significant factor in their defeat. Overall, Chelsea emerged victorious with a scoreline of 4-3, further solidifying their position in the league table and putting more distance between themselves and Man United.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Chelsea Manchester United] Dẫn 3-2 đến phút 90+7, Man United vẫn thua ngược Chelsea"
 date: Fri, 05 Apr 2024 06:00:00 +0700
 categories: entries VN
@@ -62,3 +88,5 @@ Sự thất vọng của các ngôi sao Man United - Ảnh: REUTERS
 
 Chung cuộc, Chelsea thắng Man United 4-3. Kết quả này cũng giúp thầy trò ông Pochettino có 43 điểm, rút ngắn cách biệt với vị trí thứ 6 của Man United còn 5 điểm. Chelsea đồng thời cũng đang đá ít hơn Man United 1 trận.
 
+
+</details>
