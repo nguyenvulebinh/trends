@@ -1,5 +1,23 @@
 ---
 layout: post
+title: "[Hứa Quang Hán]  Returning to the youth movie series, Hua Quang Han is still unable to get out of..."
+date: Fri, 05 Apr 2024 23 00 00 +0700
+categories: entries VN llm
+---
+[ Returning to the youth movie series, Hua Quang Han is still unable to get out of...](https://tuoitre.vn/tro-lai-dong-phim-thanh-xuan-hua-quang-han-van-khong-thoat-khoi-canh-suy-20240406144108647.htm)
+
+> The movie "18 Summer, Directed at You" tells the story of Jimmy, played by Hua Quang Han, an 18-year-old part-time worker at a karaoke bar who meets and falls in love with a Japanese girl named Ami (Kiyohara Kaya) during her extended visit to Taiwan. The film features their romantic journey through the streets of Taiwan, including the lantern festival, old streets, and night markets, while also exploring Jimmy's coming-of-age experiences and challenges. Despite Ami's eventual return to Japan, her promise to meet again when they fulfill their dreams deeply impacts Jimmy. After 18 years, Jimmy embarks on a journey to reunite with Ami, who has returned from a trip "to the other side of the earth." The movie intertwines past and present memories in Jimmy's mind as he says goodbye to his teenage feelings and confidently steps forward on his own path. The film also highlights the warm relationship between Japan and Taiwan through the interactions between Ami and the locals during her stay in Taiwan.
+
+![ Returning to the youth movie series, Hua Quang Han is still unable to get out of...](https://cdn1.tuoitre.vn/zoom/600_315/471584752817336320/2024/4/6/20240325-e3-11-17123858120492097547541-95-74-438-730-crop-1712391697884909072131.jpg)
+
+ In the movie "18 Summer, Directed at You," Hua Quang Han plays Jimmy, an 18-year-old part-time worker at a small karaoke bar. One day, he coincidentally meets Ami (Kiyohara Kaya), a Japanese girl visiting Taiwan for an extended trip. The bustling streets of Taiwan come alive in the movie "Summer in that Year," as Ami and Jimmy take us to the lantern festival, stroll through old streets, and night markets in Taiwan. They make our hearts race with their first love and tear up in a romantic movie. However, one day Ami has to return to Japan, and they bid farewell in tears. Ami's lie "let's meet again when we fulfill our dreams" deeply engraves in Jimmy's heart as a promise between them. After 18 years, Jimmy reaches the end of his journey to reunite with Ami, who returns from her trip "to the other side of the earth." The movie intertwines past and present memories in Jimmy's mind, filled with emotions.
+
+In addition to the love story, "18 Summer, Directed at You" also conveys experiences and insights gained during adolescence through various challenges faced during this time. While the film's theme is not new, and the storyline is quite predictable, "18 Summer, Directed at You" still brings unique emotions. Jimmy's coming-of-age journey always has Ami's shadow, as he looks forward to going to Japan at 20 to express his feelings. Meanwhile, there is still a part of him that remains in his teenage years.  "Jimmy comes here to find himself again, saying goodbye to those feelings to confidently step forward on his own path. Ami sadly says goodbye to Jimmy, similar to a "flow of time" postcard that Ami sends to Jimmy's future with good things. Life always continues, living in the present and heading towards the future is probably what should be done. Besides the beautiful scenery, the warm relationship between Japan and Taiwan is also incorporated into the film through the way strangers enthusiastically welcome and help Ami on her lonely journey in Taiwan. Or like how Jimmy loves Japanese culture, he is fascinated by the Slam Dunk manga series, moved by the romantic movie Love Letter, and listens to Mr. Children's music. Jimmy and Ami's journey goes through memorable emotional peaks '18 Again: A Journey Towards Myself' officially starts showing in Vietnam from April 12th. Entertainment news 30-12: Audience wonders about Hua Quang Han attending Lee Sun Kyun's funeral; Shin Hong Wan changes his stage name for the third time; V contributes to UMI's song..."
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Hứa Quang Hán] Trở lại dòng phim thanh xuân, Hứa Quang Hán vẫn không thoát ..."
 date: Fri, 05 Apr 2024 23:00:00 +0700
 categories: entries VN
@@ -64,3 +82,5 @@ Tin tức giải trí 30-12: Khán giả thắc mắc chuyện Hứa Quang Hán 
 
 
 
+
+</details>

@@ -1,5 +1,21 @@
 ---
 layout: post
+title: "[Xổ số miền Nam ngày 6 tháng 4]  XSHCM 6/4 - Today's Vietnam Ho Chi Minh City lottery results for Thursday, April 6, 2024"
+date: Sat, 06 Apr 2024 18 00 00 +0700
+categories: entries VN llm
+---
+[ XSHCM 6/4 - Today's Vietnam Ho Chi Minh City lottery results for Thursday, April 6, 2024](https://voh.com.vn/xshcm-xo-so-ho-chi-minh/xshcm-6-4-ket-qua-xo-so-tp-hcm-hom-nay-thu-7-ngay-6-4-2024-522223.html)
+
+> The text announces the live streaming of Ho Chi Minh City lottery round 6/4 on April 6, 2023, and provides the result of the lottery. It also mentions the direct broadcast of the Ho Chi Minh City lottery result day 6 month 4 year 2023. The text further describes the prize structure of the Ho Chi Minh City lottery, with a type of lottery ticket having a face value of 10,000 VND and consisting of 6 numbers. There are various prizes for different combinations of numbers, including a special prize for matching all six numbers. The text also provides a weekly jackpot schedule for the Southern lottery companies.
+
+![ XSHCM 6/4 - Today's Vietnam Ho Chi Minh City lottery results for Thursday, April 6, 2024](https://image.voh.com.vn/voh/thumbnail/2024/04/06/Xa-sa-TPHa-ChA-Minh.png)
+
+ Live streaming of Ho Chi Minh City lottery round 6/4 on April 6. Today's Ho Chi Minh City lottery result 6/4/2024. Direct broadcast of Ho Chi Minh City lottery result day 6 month 4 year 2023. The result of Ho Chi Minh City lottery today. XSTP 6/4. XSHCM 6/4. Live streaming of Ho Chi Minh City lottery round 7 on April 6. Lottery result of XSHCM today. XSTP today. Direct live broadcast of the result of Ho Chi Minh City lottery today - XSHCM day 6 month 4 year 2023. XSHCM every week is drawn at 16:15 every week by the Ho Chi Minh City XSKT Company. The result of XSHCM starts from prize eight to prize one, followed by the announcement of the special prize. XSHCM 6/4 - XSTP Hồ Chí Minh 6/4/2024 - Today's Ho Chi Minh City lottery result day 6 month 4 XSHCM - XSTP - Today's lottery result of Ho Chi Minh City on April 1, 2024 XSHCM - XSTP - Lottery result of Ho Chi Minh City on March 30, 2024 Direct live broadcast of the result of XSHCM 6/4, today's lottery of Ho Chi Minh City day 6 month 4 year 2023 Watch the live stream of XSHCM round 7 day 6/4/2024, lottery results of 3 regions North - Central - South at Youtube Channel Xổ số Đại Phát. Prize structure of Ho Chi Minh City lottery - Southern lottery With a type of lottery ticket with a face value of 10,000 VND consisting of 6 numbers, there will be a prize structure as follows: Prize Value Number of prizes Prize Value Special prize (6 numbers) 01 2,000,000,000 VNĐ First prize (5 numbers) 10 30,000,000 VNĐ Second prize (5 numbers) 10 15,000,000 VNĐ Third prize (5 numbers) 20 10,000,000 VNĐ Fourth prize (3 numbers) 1000 200,000 VNĐ Seventh prize (2 numbers) 10.000 100.000 VNĐ Special encouragement prize: Wrong one digit in the ten thousand place compared to special prize. 9 100,000,000 VNĐ Encouragement prize: Wrong 1 number at any place compared to special prize. 45 6,000,000 VND Weekly jackpot schedule of Southern lottery weekly jackpot schedule of Southern lottery companies: Monday: Ho Chi Minh City (XSHCM), Dong Thap (XSDT), Ca Mau (XSCM) Tuesday: Vung Tau (XSVT), Ben Tre (XSBT), Bac Lieu (XSBL) Wednesday: Dong Nai (XSDN), Can Tho (XSCT), Soc Trang (XSST) Thursday: An Giang (XSAG), Tay Ninh (XSTN), Binh Thuan (XSBTH) Friday: Binh Duong (XSBD), Vinh Long (XSVL), Tra Vinh (XSTV) Saturday: Ho Chi Minh City (XSHCM), Hau Giang (XSHG), Long An (XSLA)  Lotto numbers, Binh Phuoc (XSLA), Dalat (XSDL), Tien Giang (XSTG), Kien Giang (XSKG) Good luck!
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Xổ số miền Nam ngày 6 tháng 4] XSHCM 6/4 - Kết quả xổ số TP.HCM hôm nay thứ 7 ngày 6/4/2024"
 date: Sat, 06 Apr 2024 18:00:00 +0700
 categories: entries VN
@@ -50,3 +66,5 @@ Chủ nhật: Đà Lạt ( XSDL ), Tiền Giang ( XSTG ), Kiên Giang ( XSKG
 
 Chúc các bạn may mắn!
 
+
+</details>
