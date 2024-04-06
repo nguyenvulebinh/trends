@@ -29,9 +29,25 @@ Summary:
 [/INST]
 """
 
-def translate_text(text: str, src_lang="German", tgt_lang="English", stop_sequences=[]) -> str:
+def translate_text(text: str, src_lang="German", tgt_lang="English", stop_sequences=[], max_word=512) -> str:
+    segments = []
+    if len(text.split()) > max_word:
+        # split the text into multiple segments
+        words = text.split()
+        while len(words) > 0:
+            segment = []
+            while len(segment) < max_word and len(words) > 0:
+                segment.append(words.pop(0))
+            segments.append(" ".join(segment))
+        print(f"Text is too long, split into {len(segments)} segments")
+    else:
+        segments.append(text)
+
+    translated_segments = []
     translation_chain = PromptTemplate.from_template(translation_prompt_template).partial(src_lang=src_lang, tgt_lang=tgt_lang) | get_default_llm_model(temperature=0., stop_sequences=stop_sequences) | StrOutputParser()
-    return translation_chain.invoke(input={"text": text})
+    for segment in segments:
+        translated_segments.append(translation_chain.invoke(input={"text": segment}))
+    return " ".join(translated_segments)
 
 def summarize_text(text: str) -> str:
     summary_chain = PromptTemplate.from_template(summary_prompt_template) | get_default_llm_model(temperature=0.) | StrOutputParser()
