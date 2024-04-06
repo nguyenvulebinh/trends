@@ -1,0 +1,20 @@
+---
+layout: post
+title: "🔥🔥 [VfL Bochum] Wahnsinn in Köln! FC dreht Spiel gegen VfL Bochum in der ..."
+date: Sat, 06 Apr 2024 17:00:00 +0200
+categories: entries DE
+---
+[Wahnsinn in Köln! FC dreht Spiel gegen VfL Bochum in der ...](https://www.ran.de/sports/fussball/bundesliga/news/fc-koeln-vfl-bochum-ergebnis-nachspielzeit-dusel-bundesliga-359470)
+
+![Wahnsinn in Köln! FC dreht Spiel gegen VfL Bochum in der ...](https://mim.p7s1.io/pis/ld/f796zChLCVyZ-c1vEwXZAanB-DJ78rnq2V2gRWTHzVV6NywNWMSJCEGmZ4YSENP-WRL0b9lo2zmFQhLTfDxgwL2hTIJn7Ew0qSytcSMFSPNIXH9rYOk4Q5WPuHQ8qpq_tzOtznhr-Rs/profile:original?w=1024)
+
+Dank eines famosen Schlussspurts hat der 1. FC Köln im Kellerkrimi der Bundesliga einen erlösenden Sieg gefeiert. · Steffen Tigges (90.+1) und Luca Waldschmidt ( ...
+
+Anzeige
+
+Dank eines famosen Schlussspurts hat der 1. FC Köln im Kellerkrimi der Bundesliga einen erlösenden Sieg gefeiert.
+
+Steffen Tigges (90.+1) und Luca Waldschmidt (90.+2) schossen den FC nach Rückstand zu einem 2:1 (0:1) gegen den VfL Bochum. Bei nun nur noch vier Punkten Rückstand auf den VfL, der den ersten Nichtabstiegsplatz belegt, kann Köln weiterhin auf die direkte Rettung hoffen. Der Relegationsplatz ist für den Tabellen-17. ebenfalls in Reichweite.
+
+In den kommenden Duellen beim Abstiegskonkurrenten FSV Mainz 05 und gegen Darmstadt 98 kann Köln nachlegen. Der VfL, der im Februar Bayern München geschlagen hatte und durch Felix Passlack (53.) in Führung ging, wartet nun seit sechs Spielen auf einen Sieg und muss sich weiter nach unten orientieren.
+
