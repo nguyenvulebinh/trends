@@ -1,5 +1,36 @@
 ---
 layout: post
+title: "[Bettys Diagnose]  New season of 'Bettys Diagnosis' on ZDF - main actress reveals..."
+date: Fri, 05 Apr 2024 21 00 00 +0200
+categories: entries DE llm
+---
+[ New season of 'Bettys Diagnosis' on ZDF - main actress reveals...](https://www.ruhr24.de/promi-tv/bettys-diagnose-zdf-neue-staffel-start-mediathek-serie-interview-sendetermine-tv-aenderung-92536888.html)
+
+> The new season of "Bettys Diagnose" on ZDF features a new leading actress, Henrike Hahn, who plays the role of Elisabeth Hertz, the new Betty. Hahn reveals that her character brings fresh energy, empathy, optimism, and a bit of mischievousness to the show. The change in the main character also impacts other characters, creating new stories. The tenth season debuted on September 22 in the ZDF-Mediathek, with the TV premiere following a week later on September 29 at 7:25 p.m. on ZDF.
+
+![ New season of 'Bettys Diagnosis' on ZDF - main actress reveals...](https://www.ruhr24.de/assets/images/31/266/31266945-der-cast-von-bettys-diagnose-heisst-die-neue-betty-henrike-hahn-willkommen-1Bfe.jpg)
+
+ The new season of "Bettys Diagnose" has a new leading actress. Henrike Hahn exclusively reveals to RUHR24 what will be different about the new Betty.
+New Season of "Bettys Diagnose" on ZDF - Main Actress Reveals Change
+By: Charleen Deffner
+The new season of "Bettys Diagnose" has a new leading actress. Henrike Hahn (37) exclusively reveals to RUHR24 what changes will be made in the new season.
+Dortmund - The tenth season of the successful series "Bettys Diagnose" starts on Friday (22. September) in the ZDF-Mediathek. New leading actress Henrike Hahn celebrates her debut. In an interview with RUHR24, the actress revealed what changes will be made in the new season.
+ZDF Series "Bettys Diagnose" Changes Main Character - New "Betty" Reveals Changes
+In the last episode of the ninth season of "Bettys Diagnose," fans had to say goodbye. Fans had to part with the eponymous main character Bettina Weiss, alias "Betty," after seven years. However, a glimpse could already be thrown at the new "Betty." Elisabeth Hertz was personally handed over the station management by her predecessor.
+According to ZDF, this will bring "fresh wind" into the series. But what exact change can viewers expect? How does Elisabeth Hertz differ from Bettina Weiss? RUHR24 asked actress Henrike Hahn (more celebrity news on RUHR24).
+New Season of "Bettys Diagnose" Has a Different Leading Actress - Interview with Henrike Hahn
+"Of course, the Bettys are different because their stories and we actresses are different. That's in the nature of things. Elisabeth Hertz comes from a family of showmen. This background has brought out the talent in her to deal with people in a very empathetic way," explains Henrike Hahn against RUHR24.
+However, the new "Betty" will also bring more optimism and a dash of mischievousness to the station. "She rolls up her sleeves and finds a solution for every problem, no matter how difficult. Burying her head in the sand is not an option for her, despite the stumbling blocks that come her way at the beginning of the new season," reveals the actress further.
+It's exactly this interplay of positive energy, lightness, which distinguishes Elisabeth Hertz.
+New Season of "Bettys Diagnose" - ZDF Series Changes with New "Betty"
+However, changing the leading actress in the ZDF series also affects the other characters. "When you join an existing group or circle of friends as an ensemble member, it always creates something new, new and different stories that we also tell in this series," says Henrike Hahn.
+The ZDF series "Bettys Diagnose" has a new leading actress. © Willi Weber/ZDF
+Viewers can convince themselves of this new dynamics from Thursday (22. September) in the ZDF-Mediathek. The TV premiere follows a week later on Friday (29. September) at 7:25 p.m. on ZDF. The total of 26 episodes will be broadcast weekly at the same time.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Bettys Diagnose] Neue Staffel „Bettys Diagnose“ bei ZDF – Hauptdarstellerin verrät ..."
 date: Fri, 05 Apr 2024 21:00:00 +0200
 categories: entries DE
@@ -40,3 +71,5 @@ Die ZDF-Serie „Bettys Diagnose“ hat eine neue Hauptdarstellerin. © Willi We
 
 Von dieser neuen Dynamik können sich die Zuschauer ab Donnerstag (22. September) selbst in der ZDF-Mediathek überzeugen. Die TV-Premiere folgt eine Woche später am Freitag (29. September) um 19.25 Uhr im ZDF. Die insgesamt 26 Folgen werden wöchentlich zur gleichen Zeit ausgestrahlt.
 
+
+</details>
