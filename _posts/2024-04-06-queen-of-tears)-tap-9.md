@@ -1,5 +1,29 @@
 ---
 layout: post
+title: "🔥🔥 [Queen of Tears) tập 9]  Review of 'Queen Of Tears' episode 9: After a night, Hae In transforms from a wealthy heiress..."
+date: Sat, 06 Apr 2024 15 00 00 +0700
+categories: entries VN llm
+---
+[ Review of 'Queen Of Tears' episode 9: After a night, Hae In transforms from a wealthy heiress...](https://tiin.vn/chuyen-muc/sao/Review-Queen-Of-Tears-tap-9-Sau-mot-dem-Hae-In-tu-tai-phiet-hoa-an-may.html)
+
+> In "Queen of Tears" Episode 9, the Hong family finds themselves homeless and penniless after being kicked out by Seul Hee and the housekeeper. Hyun Woo helps them by taking them to his hometown, leading to humorous and emotional clashes between the wealthy family and commoners. Hae In suspects that Hyun Woo is her ex-boyfriend from middle school, but she hasn't been able to confirm it yet. Meanwhile, Eun Sung discovers Hae In's terminal illness and confronts doctors to save her. Chairman Hong shows signs of waking up on the ambulance, and Hyun Woo clashes with thugs related to Queens' lawsuit. The episode aired on tvN every Saturday and Sunday at 21:20, and VOH Online provides regular updates on movie news.
+
+![ Review of 'Queen Of Tears' episode 9: After a night, Hae In transforms from a wealthy heiress...](https://newsmd2fr.keeng.vn/tiin/archive/imageslead/2024/04/07/thumb4_6hf9ik6pdc33z6996cg739tddtrznuon8.jpg)
+
+ VOH - Queen of Tears (Nữ Hoàng Nước Mắt) Episode 9 has recently aired, causing audiences to laugh and chuckle as the Hong family "clashes" with Hyun Woo's family. By clicking "I agree" to the terms of this post, you confirm that you are at least 18 years old. Queen of Tears (Nữ Hoàng Nước Mắt) Episode 9 has recently aired and surprisingly saw a 15.5% drop in ratings from the previous episode's 16.1%. However, the film remains enjoyable due to its humorous and engaging storylines.
+
+The opening scene features the once-wealthy Hong family now homeless after being kicked out by Seul Hee and the housekeeper. Just as a reporter is about to capture this moment, Hyun Woo (Kim Soo Hyun) steps in and covers it up, saving the family's dignity. Later that night, the Hong family finds themselves penniless and helpless, prompting Hyun Woo to take them to his hometown for refuge.
+
+This sparks a series of humorous and emotional clashes between the upper class and commoners, leaving audiences in stitches. The Hong family struggles to adapt to their new life, while Hae In (Kim Ji Won) quickly adjusts and even forms a bond with Hyun Woo's mother. Could their romantic fate be closer than they think?
+
+In Hyun Woo's room, Hae In suspects that her ex-boyfriend from middle school is the same person as Hyun Woo. Before she can confirm, Hyun Woo rushes in and takes back the item she found. Could their romantic fate be closer than they think?
+
+Meanwhile, Eun Sung discovers the truth about Hae In's terminal illness while staying at the countryside. Back at Queens, tensions run high as Hyun Woo returns to work but secretly searches for evidence to overturn his new boss. Additionally, Eun Sung is furious after learning that Seul Hee has kicked out the family he loves.  Trying to meet Hyun Woo to ask about Eul Seol's talent, but Hyun Woo lied saying he also didn't know. Can Hyun Woo turn the tables? Eun Sung ignores Seul Hee's plan, intentionally moves Hong's position elsewhere - as a way to resist his mother-in-law. At the same time, in this episode, Eun Sung also discovers the truth about Hae In's terrible illness. The madman meets with doctors, forcing them by all means to save his beloved daughter. Later on, the plot becomes more captivating when Chairman Hong shows signs of waking up on the ambulance, and Eun Sung encounters Hae In again. Meanwhile, Hyun Woo, on his way back, clashes with thugs related to Queens' lawsuit. Queen of Tears (Tearful Queen) is currently airing every Saturday and Sunday at 21:20 on tvN. Join VOH Online to watch the exciting developments next time! VOH Online updates the latest movie news regularly in the movie section.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Queen of Tears) tập 9] Review Queen Of Tears tập 9: Sau một đêm, Hae In từ tài phiệt hóa ..."
 date: Sat, 06 Apr 2024 15:00:00 +0700
 categories: entries VN
@@ -42,3 +66,5 @@ Queen of Tears (Nữ Hoàng Nước Mắt) hiện đang phát sóng vào 21:20 c
 
 Cùngvoh.com.vn cập nhật liên tục những thông tin phim ảnh hấp dẫn nhất tại chuyên mục phim ảnh.
 
+
+</details>
