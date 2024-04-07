@@ -1,5 +1,32 @@
 ---
 layout: post
+title: "🔥🔥 [Peter Sodann]  Actor Peter Sodann has died"
+date: Sun, 07 Apr 2024 10 00 00 +0200
+categories: entries DE llm
+---
+[ Actor Peter Sodann has died](https://www.mdr.de/nachrichten/sachsen-anhalt/halle/halle/peter-sodann-nachruf-kultur-news-100.html)
+
+> Peter Sodann, an actor and theater director, died at 87 in Halle, Germany. Born in Meißen, he trained as a toolmaker before studying law and acting. In the 1960s, after a prison stint for "treasonous activities," he resumed acting studies and worked at Berliner Ensemble. He became artistic director of Halle's Theater des Friedens in 1980, transforming a derelict building into a significant cultural center. In 2005, Sodann was dismissed as intendant of Neues Theater, a decision he struggled to forgive. He was known for his role in Tatort and other film and television appearances. During the DDR era, up to 80 Stasi informants were assigned to him, but he advocated for individual assessment of each case. Sodann also ran for Federal President and established a DDR library, saving books from landfills for cultural heritage purposes.
+
+![ Actor Peter Sodann has died](https://cdn.mdr.de/kultur/sodann-104_v-variantBig16x9_wm-true_zc-ecbbafc6.jpg?version=30991)
+
+ Peter Sodann was an actor, theater director, established a cultural oasis, was nominated as Federal President, thrilled as Tatort Commissioner Ehrlicher and ... Peter Sodann, as theater director in Halle during GDR times, built a cultural center out of a derelict building complex, which remains so until today. As Kommissar Bruno Ehrlicher in Tatort, he became known to a wider audience from 1992 onwards. Later, he unsuccessfully ran for Federal President and established a DDR library. The actor, director, and theater director Peter Sodann has passed away. He died on Friday at the age of 87 in Halle, as his family announced on Sunday. The "Mitteldeutsche Zeitung" had reported previously. Although Peter Sodann was well-known to many people through his work in Halle, he was actually born in Saxony. Born in Meißen in 1936, he completed his secondary education after training as a toolmaker in the mid-50s. Subsequently, Sodann studied law for four semesters in Leipzig. From 1959 to 1961, he underwent acting training at the Theaterhochschule Leipzig. At the same time, Sodann led the student cabaret "Rat der Spötter" in Leipzig and clashed with the state power. He was convicted for treasonous activities and counterrevolutionary agitation and spent several months in prison. After his release from prison in 1962, he first trained as a top spindle grinder at VEB Starkstromanlagenbau Leipzig before resuming and completing his acting studies in 1963. In 1964, theater director Helene Weigel, the wife of Bertolt Brecht, brought him to the Berliner Ensemble, where Sodann worked for two years not only as an actor but also gained his first experience as a director. After stops in Erfurt, Karl-Marx-Stadt (now Chemnitz), and Magdeburg, he finally became the dramatic advisor of the "Theater des Friedens" in Halle in 1980. It was there that he initiated his major work with the support of his theater team: transforming a dilapidated building complex in the old town into a cultural oasis and one of the most significant cultural centers in eastern Germany. An old cinema became the "Neues Theater," and over time, further stages were added, as well as a literary café, an art gallery, and gastronomic facilities. To this day, the cultural oasis is a lively center of cultural life in Halle.
+
+Personal setback
+Of course, theater was also performed on the cultural oasis, always one that Sodann had thoughtfully directed towards the audience, popular theater in the best sense of the word. However, one year before Sodann's 25th stage jubilee and his 70th birthday in 2005, there was a decision against the cultural worker. The responsible parties of the city of Halle felt that it was enough for Sodann. At the end of July, he was supposed to be dismissed as artistic director and intendant of the Neues Theater. Shortly beforehand, he had been appointed honorary citizen of the city of Halle. Sodann wrote at the time on his homepage that he would be "shown the door" and that it "hurts a lot." And further: "After all, I built this cultural oasis with my people; every nail, every plank, I have procured myself."
+
+It was a dismissal that Sodann could not forgive for a long time. Only when he turned 80 and another colleague had succeeded his former successor as intendant of the Neues Theater did he enter the house again.  The theater director and actor Peter Sodann built his own theater; he procured every nail and board himself. After his dismissal as Schauspieldirektor, Sodann remained a popular Tatort-Kommissar in Dresden and Leipzig. He played the role of Bruno Ehrlicher in the Tatort series 45 times, beginning in early 1992. Sodann also gained popularity through numerous other film and television roles. In Frank Beyer's TV two-part series "Nikolaikirche," based on Erich Loest's novel, he played the head of the Stasi headquarters. In the ZDF two-part series "Deutschlandspiel," he portrayed former Stasi chief Erich Mielke, among others. Sodann considered one of his most important roles to be that of Pfarrer Helander in Bernhard Wicki's film adaptation of Alfred Andersch's novel "Sansibar oder der letzte Grund."
+
+It is said that during the DDR era, up to 80 Stasi informants were assigned to Sodann. Despite this, he expressed understanding for those who went along with and committed crimes under the DDR surveillance regime. He consistently advocated for an individual assessment of each case.
+
+Sodann also engaged in politics and society beyond his acting career. For the federal presidential election in the spring of 2009, he was nominated by the Bundestagsfraktion der Linken (The Left party's parliamentary group) as a candidate. Although he had no chance of winning, he received two more votes than the Linke could have given him in the Bundesversammlung (Federal Convention). At that time, Horst Köhler won the election.
+
+Sodann developed a great passion for collecting books published in the eastern part of Germany after 1945. With his DDR-Bibliothek (DDR library), he saved entire library collections from the landfill, believing in the cultural heritage of the DDR. Sodann thought that "our grandchildren will one day want to read what their grandfathers did." After stops in Halle and Merseburg, he relocated his four-million-volume book collection to the community of Staucha in 2012. The Peter-Sodann-Bibliothek (Peter Sodann Library) was established as a cooperative to ensure its continued existence even without him.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Peter Sodann] Schauspieler Peter Sodann gestorben"
 date: Sun, 07 Apr 2024 10:00:00 +0200
 categories: entries DE
@@ -56,3 +83,5 @@ Eine große Leidenschaft wurde Sodann das Sammeln von Büchern, die nach 1945 im
 
 Nach Stationen in Halle und Merseburg siedelte er die auf etwa vier Millionen Bände angewachsene Büchersammlung 2012 in der Gemeinde Staucha an. Die Peter-Sodann-Bibliothek wurde als Genossenschaft angelegt, damit seine Idee auch ohne ihn weiterexistieren kann.
 
+
+</details>
