@@ -1,5 +1,32 @@
 ---
 layout: post
+title: "[Bayern Munich]  Bayern Munich, leading 2-0, still lost; Leverkusen still have a chance to win the championship..."
+date: Sat, 06 Apr 2024 22 00 00 +0700
+categories: entries VN llm
+---
+[ Bayern Munich, leading 2-0, still lost; Leverkusen still have a chance to win the championship...](https://tuoitre.vn/bayern-munich-dan-2-0-van-thua-leverkusen-con-cach-chuc-vo-dich-3-diem-20240406234954221.htm)
+
+> In matchday 28 of the Bundesliga, Bayern Munich lost the game 2-3 to newly promoted Heidenheim, dealing a significant blow to their title hopes. After leading 2-0 at halftime, thanks to goals from Harry Kane and Serge Gnabry, Bayern Munich's performance deteriorated in the second half, resulting in three unanswered goals by Heidenheim. Kevin Sessa and Kim Kleindienst scored the equalizing and winning goals for Heidenheim, respectively. The defeat allowed Bayer Leverkusen to increase their lead over Bayern Munich to 16 points, putting them in a strong position to claim the Bundesliga title. If Leverkusen wins their next match against Werder Bremen or if Bayern Munich loses to Koln, Leverkusen will be crowned champions of the Bundesliga.
+
+![ Bayern Munich, leading 2-0, still lost; Leverkusen still have a chance to win the championship...](https://cdn1.tuoitre.vn/zoom/600_315/471584752817336320/2024/4/6/heidenheim-bayern-munich-bundesliga-1712421860219358698692-0-0-1047-2000-crop-1712421992917898072220.jpg)
+
+ Bayern Munich continue to disappoint in the German League (Bundesliga) as they lost 2-3 to newly promoted team Heidenheim in matchday 28.
+Bayern Munich 'stumble' against newcomers Heidenheim despite leading 2-0 - Image: REUTERS
+After losing 0-2 to Dortmund in the previous round, Bayern Munich are almost out of the title race. However, continuing to lose is still a disappointing result for "the blues", especially against a newly promoted Heidenheim who are playing their first season ever in the Bundesliga.
+The manner of Bayern Munich's defeat is also hard to accept. After the first half, they were almost certain to earn 3 points as they led 2-0. Harry Kane helped "the blues" open the scoring in the 38th minute. Then Gnabry increased their lead just before halftime.
+However, in the second half, Bayern Munich played like they were dreaming. It is unclear whether it was due to overconfidence or poor form recently affecting their performance. Nonetheless, they easily collapsed against a Heidenheim side that has no stars.
+Kevin Sessa helped the home team reduce the deficit in the 50th minute after receiving a clever pass from his teammate and beating Sven Ulreich in the one-on-one situation.
+And just over a minute later, Heidenheim equalized to make it 2-2. The Bayern defense was completely distracted and left Kim Kleindienst unmarked. The number 10 player easily tapped in the ball without any pressure.
+It didn't stop there, as Kleindienst helped Heidenheim complete an incredible comeback in the 79th minute after a textbook counter-attack.
+Bayer Leverkusen could be crowned Bundesliga champions next round - Image: REUTERS
+Meanwhile, league leaders Bayer Leverkusen won 1-0 against Union Berlin. As a result, they have 76 points and increased their lead over Bayern Munich to 16 points.
+After matchday 28, there are only 6 rounds left in the Bundesliga. In the next round, if Leverkusen wins against Werder Bremen, they will officially become champions with 5 rounds remaining.
+Alternatively, even if Leverkusen doesn't win, as long as Bayern Munich loses to Koln, Leverkusen will still become the new champions of the Bundesliga.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Bayern Munich] Bayern Munich dẫn 2-0 vẫn thua, Leverkusen còn cách chức vô địch ..."
 date: Sat, 06 Apr 2024 22:00:00 +0700
 categories: entries VN
@@ -32,3 +59,5 @@ Sau vòng 28, Bundesliga chỉ còn 6 vòng nữa là kết thúc. Ở vòng đ�
 
 Hoặc trong trường hợp không thắng nhưng Bayern Munich tự thua Koln, Leverkusen vẫn sẽ trở thành tân vương của Bundesliga.
 
+
+</details>
