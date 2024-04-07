@@ -1,5 +1,36 @@
 ---
 layout: post
+title: "🔥🔥 [Inter Miami đấu với Colorado]  Messi scores, Inter Miami unfairly draw at the last minute."
+date: Sun, 07 Apr 2024 07 00 00 +0700
+categories: entries VN llm
+---
+[ Messi scores, Inter Miami unfairly draw at the last minute.](https://vtcnews.vn/messi-lap-cong-inter-miami-hoa-dang-tiec-phut-cuoi-ar863346.html)
+
+> In the latest MLS match, Inter Miami drew 2-2 against Colorado, despite Lionel Messi's goal. Inter Miami dominated the game but struggled with accuracy in their shots on target. Colorado was awarded a penalty kick just before halftime, which they successfully converted. Messi, who started from the bench due to injury recovery, entered the game in the second half and scored the equalizer for Inter Miami. Shortly after, Inter Miami took the lead with a header from Leonardo Afonso. However, Colorado equalized with a late goal from a quick counter-attack. The draw caused Inter Miami to lose their first place in the MLS standings to New York Red Bull.
+
+![ Messi scores, Inter Miami unfairly draw at the last minute.](http://cdn-i.vtcnews.vn/resize/6AZBnTN9p_KtM1g61nuoeDHbOk5dsFEf0/upload/2024/04/07/messi3-08310891.jpg)
+
+ Lionel Messi's Goal Doesn't Help Inter Miami Secure Win Against Colorado
+(VTC News) -
+Messi Scores for Inter Miami.
+In the 7th round of the American professional soccer league (MLS), Inter Miami drew with Colorado despite leading in the final minutes.
+In this match, Inter Miami welcomed back Messi after a period of injury recovery for the Argentine star. He started from the bench and entered the field in the second half.
+Inter Miami controlled the game after the opening whistle. They had multiple shots on goal towards Zack Steffen's net but lacked accuracy.
+At the end of the first half, the visiting team surprisingly received a penalty kick. Ryan Sailor made an error against Kevin Cabral in the restricted area. Rafael Navarro did not make any mistakes to open the scoring.
+Messi scored in his return.
+In the second half, Gerardo Martino brought Messi into the game. The Argentine player made Inter Miami's attack more formidable. He equalized the score in the 57th minute. Receiving a pass from Franco Negri on the left flank, Messi finished with one touch inside the penalty area, beating Colorado's goalkeeper.
+Inter Miami played more aggressively. Three minutes later, they scored the second goal. David Ruiz crossed for Leonardo Afonso to head in at close range.
+The match was favorable for Inter Miami. They controlled the ball better and tried to slow down the pace to maintain the lead. However, Lionel Messi and his teammates could not hold on. In the 88th minute, from a quick counter-attack, Harris dribbled past the right flank before crossing to Bassett to equalize at 2-2.
+There was not enough time left for Inter Miami to find another goal. They accepted sharing points at home. This draw causes Inter Miami to lose first place in MLS to New York Red Bull.
+Result: Inter Miami 2-2 Colorado
+Scorers:
+Inter Miami: Messi (57'), Afonso (60')
+Colorado: Navarro (45'), Bassett (88')
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Inter Miami đấu với Colorado] Messi lập công, Inter Miami hòa đáng tiếc phút cuối"
 date: Sun, 07 Apr 2024 07:00:00 +0700
 categories: entries VN
@@ -40,3 +71,5 @@ Inter Miami: Messi (57'), Afonso (60')
 
 Colorado: Navarro (45'), Bassett (88')
 
+
+</details>
