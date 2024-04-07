@@ -1,5 +1,21 @@
 ---
 layout: post
+title: "🔥🔥 [Queen of Tears tập 9]  Developments of The Queen of Tears Movie Collection"
+date: Sat, 06 Apr 2024 15 00 00 +0700
+categories: entries VN llm
+---
+[ Developments of The Queen of Tears Movie Collection](https://afamily.vn/kim-soo-hyun-gap-bien-cang-bi-vay-danh-giua-duong-rating-queen-of-tears-bat-ngo-giam-nhe-20240407103348607.chn)
+
+> Queen of Tears episode 9 focuses on a rescue mission to save Hyun Woo's wife, with the story unfolding in both Hyun Woo's countryside home and the Hong family palace. The Hong family, including Hae In, are evicted from their palace and taken in by Hyun Woo. Hae In is uncomfortable in her ex-husband's house but quickly adapts, impressing her mother-in-law with her cooking skills. Meanwhile, Eun Sung, who now runs Queens Corporation, discovers that his mother has kicked out Hae In's family and vows to bring Hae In back. He is unaware that she is staying at Hyun Woo's house, who is secretly investigating Eun Sung's illegal takeover of the company. Hae In falls ill, but hides her condition from everyone, causing concern for her family. Hyun Woo rushes home upon hearing the news, while Eun Sung, who knows about Hae In's illness, is frantic to find a cure. The episode ends with Eun Sung finding Hae In while Hyun Woo is being detained in relation to a case in Queens.
+
+![ Developments of The Queen of Tears Movie Collection](https://afamilycdn.com/zoom/600_315/150157425591193600/2024/4/7/avatar1712460610291-1712460610409926123884-0-0-566-1081-crop-1712460725869770651416.png)
+
+ Queen of Tears episode 9 focuses on the rescue mission to save Hyun Woo's wife. Queen of Tears (Nữ Hoàng Nước Mắt) episode 9 continues with a mix of humorous and dramatic plotlines, but the rating drops slightly to 15.5% (from 16.1% in episode 8). The episode begins with a crisis in the Hong family, who are evicted from their palace and narrowly escape being photographed by reporters. Luckily, Hyun Woo (Kim Soo Hyun) appears just in time to rescue them and takes them to his countryside home to hide temporarily. Although grateful, Hae In (Kim Ji Won) expresses her desire to leave soon as she feels uncomfortable living in her ex-husband's house. The wealthy family faces several challenges adapting to the ordinary lifestyle, while Hae In quickly adjusts and even helps with household chores, impressing her mother-in-law with her cooking skills. Meanwhile, at the Hong family palace, Eun Sung discovers that his mother has kicked out Hae In's family, causing him great shock and sadness. Despite taking over Queens Corporation, Eun Sung truly loves Hae In and vows to bring her back no matter what. He also shows respect towards his biological mother - Seul Hee. Eun Sung is unaware that Hae In is staying at Hyun Woo's house, and he later discovers that Hyun Woo is the high school boy he met and was deeply moved by in third grade. Although no longer in charge of Queens Corporation, Hyun Woo continues to work while secretly investigating Eun Sung's illegal takeover of the company and his plans to overthrow him. Hae In unexpectedly falls ill, but she hides her condition from everyone, causing concern for her family. Her mother, however, dismisses it as unimportant. Hyun Woo quickly rushes home upon hearing the news, but Hae In is more concerned about his work than her health. Eun Sung knows about Hae In's illness and is frantic to find a cure, but he cannot do anything since he is not her guardian.  In order to bring Hae In back, Eun Sung defied his mother's words, secretly took the chairman Hong out of the hospital, disregarding the fact that his health was already very weak. Not only that, but Eun Sung also unexpectedly found Hae In's whereabouts and encountered her while Hyun Woo was being detained in relation to a case in Queens. Image source: tvN
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥 [Queen of Tears tập 9] Diễn biến tập 9 phim Queen Of Tears"
 date: Sat, 06 Apr 2024 15:00:00 +0700
 categories: entries VN
@@ -24,3 +40,5 @@ Eun Sung đã biết bệnh tình của Hae In. Anh ta điên loạn vì muốn 
 
 Nguồn ảnh: tvN
 
+
+</details>

@@ -1,5 +1,33 @@
 ---
 layout: post
+title: "[Johnny Depp]  'Johnny Depp in a Pot of Makeup': Television is running today an..."
+date: Sat, 06 Apr 2024 22 00 00 +0200
+categories: entries DE llm
+---
+[ 'Johnny Depp in a Pot of Makeup': Television is running today an...](https://www.filmstarts.de/nachrichten/1000074090.html)
+
+> Director Rob Marshall, known for visually stunning films like "Memoirs of a Geisha" and "Pirates of the Caribbean 4: On Stranger Tides," has produced "Into The Woods," a musical adaptation of Stephen Sondheim's stage production. The film features various fairy tale characters, including the Big Bad Wolf from Little Red Riding Hood, played by Johnny Depp. Emily Blunt and James Corden star as a childless couple on a quest to lift a witch's curse. The film also includes stars like Meryl Streep, Chris Pine, and Anna Kendrick. Despite its strong cast and impressive production design, the film received mixed reviews, with praise for its visuals and music but criticism for its plot and character development. "Into The Woods" airs on the Disney Channel and is available on Disney+.
+
+![ 'Johnny Depp in a Pot of Makeup': Television is running today an...](https://de.web.img3.acsta.net/img/73/11/73110f1fe654dca9d6681f6258fdf40e.jpg)
+
+ Director Rob Marshall has previously produced visually stunning epic films such as "Memoirs of a Geisha," "Pirates of the Caribbean 4: On Stranger Tides," and most recently, the Disney remake ... High Fantasy, Dark Fantasy, Science Fantasy and more: Annemarie is always on hand as a Fantasy expert when it comes to "Lord of the Rings," "Narnia," "Pan's Labyrinth," the Arthurian legend & Co. Director Rob Marshall has already put together visually stunning epic films such as "Memoirs of a Geisha," "Pirates of the Caribbean 4: On Stranger Tides," and most recently, the Disney remake "The Little Mermaid." Today, however, we're going into the woods with him... Do you enjoy opulent productions and star-studded cinema? Can you warm up to musicals and fairy tales? Then we have a tip for you: Check out Rob Marshall's "Into The Woods," in which, among many other fairy tale characters, the Big Bad Wolf from Little Red Riding Hood appears, played as an extravagant furry creature by Johnny Depp - who looks like he fell into a vat of makeup, as our review puts it. This is intentional, however, because "excess is the program" in this lustful musical adaptation from Disney's stable. You can watch "Into The Woods" on television on Sunday (7 April 2024) at 8:15 pm and Thursday (11 April) at 10:25 pm on the Disney Channel. If you have a streaming subscription, you can find the fantasy adventure on Disney+.
+
+"Into The Woods" on Disney+*
+
+If you're tuning in mainly for Johnny Depp, be warned: His appearance is quite brief. However, you can look forward to many other stars who not only showcase their acting talent but also their singing skills. This includes Emily Blunt, who starred in "Into The Woods" and also worked with director Rob Marshall on the musical "Mary Poppins Returns." Meryl Streep, James Corden, Chris Pine, Anna Kendrick, and Christine Baranski are also part of the cast.
+
+Who should watch "Into The Woods"?
+
+They all deliver a strong performance in this "impeccably dressed and often excellent song parade" that takes the audience into magnificent fairy tale settings. However, despite this praise, our official FILMSTARTS review awards it a solid 3 out of 5 stars because the plot of the ironic fairy tale mishmash often subordinates itself to the visuals and catchy tunes - even though many thought-provoking themes such as sexual awakening, adultery, greed, revenge, or betrayal are hinted at, they are quickly sung over. Additionally, the plot becomes somewhat fragmented in the second half of the film, offering a few too many abrupt mood swings. With this information, you should be able to gauge whether "Into The Woods" is for you or not. If you mainly want to indulge your senses visually and auditorily, you can have a great time with the fantasy epic based on Stephen Sondheim's stage musical. However, if you also want to emotionally invest in characters and engage with challenging narratives, you might find "Into The Woods" a bit superficial - but hopefully, you will still enjoy the many strong songs. Of course, it goes without saying that "Into The Woods" is not for those who dislike musicals.
+
+Emily Blunt & James Corden in the Enchanted Forest
+
+And here's what "Into The Woods" is about, featuring a multitude of fairy tale characters: The Baker...  (James Corden) and his wife (Emily Blunt) wish for a child, but due to the curse of the wicked witch (Meryl Streep), they are unable to conceive. The witch offers to lift the curse in exchange for a series of special items. On their adventurous quest to find these objects, the couple encounters characters such as Little Red Riding Hood, Cinderella and her prince, Rapunzel, and Jack with his beanstalk. There is more singing in the Disney live-action film "The Little Mermaid," directed by Rob Marshall, which started in theaters in 2023 and is now also available on Disney+. Halle Bailey sings as the Disney princess about how much she would like to be in Prince Erik's (Jonah Hauer-King) world – before losing her voice to the evil sea witch Ursula (Melissa McCarthy). This is an updated re-release of an article that originally appeared on FILMSTARTS. *This link to Disney+ is an affiliate link. By signing up for a subscription through this link, you support FILMSTARTS. The price is not affected in any way.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Johnny Depp] 'Johnny Depp in einem Topf Schminke': Im TV läuft heute ein ..."
 date: Sat, 06 Apr 2024 22:00:00 +0200
 categories: entries DE
@@ -38,3 +66,5 @@ Dies ist eine aktualisierte Wiederveröffentlichung eines bereits auf FILMSTARTS
 
 *Bei diesem Link zu Disney+ handelt es sich um einen Affiliate-Link. Mit dem Abschluss eines Abos über diesen Link unterstützt ihr FILMSTARTS. Auf den Preis hat das keinerlei Auswirkung.
 
+
+</details>
