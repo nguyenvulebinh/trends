@@ -1,5 +1,25 @@
 ---
 layout: post
+title: "[Phim Nữ Hoàng Nước Mắt) tập 9]  Similar images of Kim Soo Hyun and Kim Ji Won cause a stir after..."
+date: Sat, 06 Apr 2024 22 00 00 +0700
+categories: entries VN llm
+---
+[ Similar images of Kim Soo Hyun and Kim Ji Won cause a stir after...](https://laodong.vn/giai-tri/hinh-anh-giong-nhau-cua-kim-soo-hyun-kim-ji-won-gay-sot-sau-tap-9-nu-hoang-nuoc-mat-1324412.ldo)
+
+> The drama "Queen of Tears" is gaining popularity due to its lead couple, Kim Soo Hyun and Kim Ji Won, who are praised for their visuals and acting skills. Fans have formed support groups hoping for them to date in real life and have been sharing photos of the actors, including images from "Radiant Office" and "My Shy Boss," as well as pictures from Kim Soo Hyun's military service. The couple's on-screen relationship is complex, with their characters experiencing various emotional states throughout the series. In "Queen of Tears," Kim Soo Hyun plays Baek Hyun Woo, a sincere man who struggles to connect with his wife, Hong Hae In, portrayed by Kim Ji Won. The show achieved a viewership rating of 15.5% in its latest episode.
+
+![ Similar images of Kim Soo Hyun and Kim Ji Won cause a stir after...](https://media-cdn-v2.laodong.vn/storage/newsportal/2024/4/7/1324412/Kim-Kim.jpg?w=800&h=420&crop=auto&scale=both)
+
+ The on-screen couple in "Queen of Tears," Kim Soo Hyun and Kim Ji Won, are praised for their good looks and receive support from fans who want them to date in real life. The drama "Queen of Tears" is currently attracting the attention of viewers, exploring the ups and downs of the married life of Baek Hyun Woo (played by Kim Soo Hyun) and Hong Hae In (played by Kim Ji Won). In the latest episode, the drama achieved a viewership rating of 15.5%. The setting of the drama changes from the Hong family mansion to Hyun Woo's hometown village. The relationship between Baek Hyun Woo and Kim Ji Won is intricate, portraying various emotional states in married life. The acting and appearance of both Kim Ji Won and Kim Soo Hyun are said to be reminiscent of a comic book couple, contributing to the drama's popularity. Fans have created support groups for the Kim - Kim couple, expressing their desire for the two actors to date in real life. Viewers have also rewatched previous films starring Kim Soo Hyun and Kim Ji Won, sharing old photos of the two actors on social media.
+
+Photos of Kim Soo Hyun and Kim Ji Won wearing military uniforms have become popular online. The image of Kim Ji Won in a military uniform is from her role as Captain Yoon Myung Joo in the 2016 film "Radiant Office," where she plays the only daughter of a general, a skilled medical officer, and a strong character. Meanwhile, Kim Soo Hyun's photo in military attire is not from a movie but rather a picture taken when he completed his mandatory military service in 2019. Photos of Kim Ji Won and Kim Soo Hyun from their previous films have caused a stir.
+
+Fans have also noticed the portrayal of the couple's poverty in "My Shy Boss." In this drama, Ji Won played Ae Ra, a kind-hearted but poor girl who lives with her friends in a rented house and has a difficult life. Kim Soo Hyun also wore a blue tracksuit in the 2013 film "Secretly Greatly," playing Won Ryu Hwan, an undercover agent sent to South Korea. He had to live under a false identity as a foolish and clumsy man in a small village. When making a cameo appearance in "Crash Landing on You" (2020), Kim Soo Hyun caused a sensation with his long hair and country-style outfit.  The season of Ryu Hwan's what year. Scene from the movie "The Queen's Classroom". Image: Producer In "The Queen's Classroom", Kim Soo Hyun plays Baek Hyun Woo, the legal director of the Queens Group Corporation. Meanwhile, Kim Ji Won plays his wife - Hong Hae In - the famous third-generation heiress of a wealthy family, known as the "queen" of the central cosmetics department of Queens Group. Baek Hyun Woo is a warm and sincere man, somewhat clumsy in love. He finds it difficult to connect with his cold and aloof wife, who rarely expresses her feelings.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Phim Nữ Hoàng Nước Mắt) tập 9] Hình ảnh giống nhau của Kim Soo Hyun - Kim Ji Won gây sốt sau ..."
 date: Sat, 06 Apr 2024 22:00:00 +0700
 categories: entries VN
@@ -46,3 +66,5 @@ Trong "Nữ hoàng nước mắt", Kim Soo Hyun vào vai Baek Hyun Woo, Giám đ
 
 Baek Hyun Woo là chàng trai ấm áp, chân thành, có phần vụng về trong tình yêu. Anh khó tìm được sự kết nối với người vợ lạnh lùng, ít khi thể hiện tình cảm.
 
+
+</details>

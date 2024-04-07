@@ -1,5 +1,22 @@
 ---
 layout: post
+title: "[Paris-Roubaix]  Teutenberg wins U23 Paris-Roubaix | radsport-news.com"
+date: Sun, 07 Apr 2024 10 00 00 +0200
+categories: entries DE llm
+---
+[ Teutenberg wins U23 Paris-Roubaix | radsport-news.com](https://www.radsport-news.com/sport/sportnews_137755.htm)
+
+> In a recent cycling event, Tim Torn Teutenberg of Lidl – Trek Future Racing won the U23 Paris-Roubaix race. Meanwhile, Fietzke finished 8th in the Junior race. The exact placement and names of other racers are not mentioned in the provided text.
+
+![ Teutenberg wins U23 Paris-Roubaix | radsport-news.com](https://www.radsport-news.com/favicon_RSN.ico)
+
+ Fietzke Finishes 8th in Junior Race | Tim Torn Teutenberg wins U23 Paris-Roubaix
+Tim Torn Teutenberg (Lidl – Trek Future Racing) has won the U2
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Paris-Roubaix] Teutenberg gewinnt Paris-Roubaix der U23 | radsport-news.com"
 date: Sun, 07 Apr 2024 10:00:00 +0200
 categories: entries DE
@@ -32,3 +49,5 @@ Den Sieg bei den Junioren holte sich der Slowene Jakob Omrzel, der sich vor sein
 
 Results powered by FirstCycling.com
 
+
+</details>

@@ -1,5 +1,25 @@
 ---
 layout: post
+title: "[Sodann Peter]  Tough shell, soft core: Actor Peter Sodann has died."
+date: Sun, 07 Apr 2024 13 00 00 +0200
+categories: entries DE llm
+---
+[ Tough shell, soft core: Actor Peter Sodann has died.](https://www.ndr.de/kultur/Der-Schauspieler-Peter-Sodann-ist-tot,petersodann104.html)
+
+> Peter Sodann, a notable German actor and activist, passed away at 87 in Halle an der Saale. Known for his outspokenness and honesty, he had conflicts throughout his life, including time in prison in the German Democratic Republic (GDR) for anti-state agitation. His breakthrough role was as Bruno Ehrlicher in "Tatort," reflecting his tough exterior and softer interior. After an apprenticeship as a toolmaker and dabbling in law, Sodann studied at Leipzig Theater Academy. He later led a cabaret called "Rat der Spötter" until it was dissolved for counterrevolutionary content. In the GDR, he received recognition with the National Prize in 1986 and the Federal Cross of Merit in 2001 after reunification. Sodann also had political aspirations, running for the Bundestag election in 2005 and later as a candidate for The Left party in the federal presidential election in 2009, where he lost to incumbent Horst Köhler. He was also a passionate book collector, preserving several million books from the GDR to establish a DDR library. Sodann is survived by his four children and two ex-spouses.
+
+![ Tough shell, soft core: Actor Peter Sodann has died.](https://www.ndr.de/kultur/persodann100_v-contentxl.jpg)
+
+ He passed away at the age of 87 in Halle an der Saale, as his family announced on Sunday. His artistic and political work extended far beyond acting. Sodann was outspoken. Honest and direct - this is how the actor Peter Sodann went through life. As a result, he clashed with people, first in the German Democratic Republic (GDR), where he spent several months in prison. Later, in reunified Germany, he caused a stir with his contentious statements. His most famous role - that of the grumpy chief detective Bruno Ehrlicher in "Tatort" - was typical: tough exterior, soft interior. His big mouth helped the worker's son Sodann to assert himself. After serving an apprenticeship as a toolmaker and dabbling in law, he studied at the Leipzig Theater Academy. At the same time, he led the "Rat der Spötter," a cabaret that was dissolved in 1961 due to a program deemed counterrevolutionary. Sodann was arrested for anti-state agitation and expelled from his studies. He spent nine months in prison and was later spied on by the Stasi. Helene Weigel brought him to the Berliner Ensemble after he completed his studies late. Shortly thereafter, he shot his first major film "Sansibar oder der letzte Grund" with Bernhard Wicki. Through engagements at the Berliner Ensemble, in Erfurt, Chemnitz and Magdeburg, he came to Halle. There, he and his colleagues took over a dilapidated DDR cinema in the 1980s - and created their own stage: the "neue theater". Further Information A two-part documentary about Bertolt Brecht with Tom Schilling is available on NDR television. Heinrich Breloer's documentary-drama "Die Ausforschung des Glücks" (The Search for Happiness) with Tom Schilling about the life of the playwright can be found in the ARD Mediathek. In the GDR, he received recognition after all: in 1986, he was awarded the National Prize. In reunified Germany, he received the Federal Cross of Merit in 2001. In 2005, the city of Halle allowed his contract to expire - "the theater said goodbye to me," Sodann called this without bitterness in his autobiography. Engagement as a passionate book collector After that, he dedicated himself fully to another passion project: the literary heritage of the GDR. Sodann collected several million books since 1989 that were printed in the eastern part of Germany between 1945 and the end of the GDR and were at risk of ending up on the trash heap. He established a DDR library in a former manor house in the village of Staucha in the Meißen district using these books. "I am fighting against forgetting," he said. "The past cannot simply be wiped away." Political Ambitions Sodann also had political ambitions. In 2005, he wanted to run as an independent candidate for the PDS (Party of Democratic Socialism)
+
+Note: The text was translated from German to English. Some minor adjustments were made to improve readability in English.  In 2005, Peter Sodann ran for the Bundestag election and then withdrew his candidacy shortly after - he would have had to give up his "Tatort" role otherwise. From 1992 to 2007, his detective Ehrlicher first investigated in Dresden and later in Leipzig. As Bruno Ehrlicher, he also addressed the problems of the transition in Eastern Germany. In 2009, Sodann ran as a candidate for The Left party in the federal presidential election. This earned him admiration from fans but also much head-shaking. As an apparently hopeless candidate, he did not mince words. At one point, he demanded a "socialism of new design," although the system of the former GDR could clearly not serve as a model for this. At another time, he declared that as a real "police commissioner," he would arrest Deutsche Bank CEO Josef Ackermann. He lost the election to incumbent Horst Köhler. One of his sons, Franz Sodann (50), is a state parliament member for The Left in Saxony. Peter Sodann had four children and was married twice.
+
+This topic will be on the program: NDR Kultur | Der Nachmittag | April 8, 2024 | 2:10 PM.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Sodann Peter] Harte Schale, weicher Kern: Schauspieler Peter Sodann ist tot"
 date: Sun, 07 Apr 2024 13:00:00 +0200
 categories: entries DE
@@ -44,3 +64,5 @@ Einer seiner Söhne, Franz Sodann (50), ist für die Linke Landtagsabgeordneter 
 
 Dieses Thema im Programm: NDR Kultur | Der Nachmittag | 08.04.2024 | 14:10 Uhr
 
+
+</details>

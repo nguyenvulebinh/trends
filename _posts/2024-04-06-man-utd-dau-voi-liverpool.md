@@ -1,5 +1,34 @@
 ---
 layout: post
+title: "🔥🔥🔥🔥 [Man utd đấu với Liverpool]  Live football match Man Utd 0-0 Liverpool: Rashford takes a shot"
+date: Sun, 07 Apr 2024 02 00 00 +0700
+categories: entries VN llm
+---
+[ Live football match Man Utd 0-0 Liverpool: Rashford takes a shot](https://vtcnews.vn/truc-tiep-bong-da-man-utd-vs-liverpool-vong-32-giai-ngoai-hang-anh-ar863428.html)
+
+> The match between Manchester United (Man Utd) and Liverpool ended in a 2-2 draw. Man Utd's goalkeeper, Onana, made crucial saves to deny Nunez and Salah. The first goal for Liverpool came from Luis Diaz, while the equalizers for both teams were scored by Bruno Fernandes for Man Utd and Salah for Liverpool, the latter resulting from a penalty kick after Elliott was fouled by Wan Bissaka. Kobbie Mainoo scored the other goal for Man Utd. Notable moments include Szoboszlai's long shot for Liverpool going wide, and both teams having chances to take the lead but failing to capitalize. The match was intense with both teams displaying strong attacking play.
+
+![ Live football match Man Utd 0-0 Liverpool: Rashford takes a shot](http://cdn-i.vtcnews.vn/resize/wfPCfFXtfn3jPKUwlI8Zjw2/upload/2024/04/07/man-utd-vs-liv-settop-22203895.jpg)
+
+ Liverpool: Kelleher, Robertson, Virgil van Dijk, Quansah, Bradley, Szoboszlai, Endo, Mac Allister, Luis Diaz, Nunez, Salah. Match review: Man Utd vs Liverpool. The match ended in a 2-2 draw with Antony facing off against Kelleher but his shot was too light. Elliott had a chance but also failed to beat Onana. Liverpool's goal came from Luis Diaz who finished off a chance from just 7 meters out. Before that, Robertson fouled Antony but the referee did not call it.
+
+GOAL FOR LIVERPOOL! Man Utd 2-2 Liverpool Elliott was fouled by Wan Bissaka in the box and Salah converted the resulting penalty to equalize for Liverpool. Salah had a chance to score from close range but missed an excellent opportunity. Salah missed a chance. Man Utd's confidence has returned. Onana made a crucial save to deny Nunez.
+
+GOAL FOR MAN UTD! Man Utd 2-1 Liverpool Kobbie Mainoo scored with a fine finish after receiving the ball from Wan Bissaka, making it 2-1 for Man Utd. Man Utd brought on Antony as a substitute for the injured Rashford. Quansah made an excellent tackle to stop Rashford's attack, limiting Man Utd's attacking threat. The match was very exciting with Liverpool pushing forward and Man Utd looking to counterattack.
+
+GOAL FOR MAN UTD! Man Utd 1-1 Liverpool Quansah played a through ball to Bruno Fernandes who scored an excellent goal from midfield to equalize for Man Utd. HALF 2 STARTS Man Utd 0-1 Liverpool HALF 1 ENDS Bradley missed a good chance after a pass from Szoboszlai, Wan Bissaka made a last-ditch tackle to block the shot. Salah dribbled past Wan Bissaka but his subsequent pass was inaccurate. Bruno Fernandes's through ball was poor. Man Utd struggled to play out from the back under intense pressure from Liverpool.
+
+In the 38th minute, they had still not managed a shot on target. Darwin Nunez missed a good chance from outside the box but the Man Utd defense was poor. Liverpool continued to launch quick counterattacks with Mohamed Salah as the focal point. Salah had two dangerous chances in quick succession but Onana made excellent saves. GOAL FOR LIVERPOOL!  Utd 0-1 Liverpool
+The goal for Liverpool came from a corner kick by Andy Robertson, which was headed in by Nunez for a precise finish, opening the score for the match. Man Utd lost to Liverpool. Szoboszlai had a notable long shot but it went wide of the goal. Nunez made a good pass to Salah but the Egyptian striker missed the opportunity. The game started at a high pace right from the beginning with no significant chances being created yet.
+
+STARTING LINEUPS:
+Man Utd: Onana, Wan Bissaka, Maguire, Kambwala, Diogo Dalot, Casemiro, Mainoo, Garnacho, Bruno Fernandes, Rashford, Hojlund.
+Liverpool: Kelleher, Robertson, Virgil van Dijk, Quansah, Bradley, Szoboszlai, Endo, Mac Allister, Luis Diaz, Nunez, Salah.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥🔥🔥 [Man utd đấu với Liverpool] Trực tiếp bóng đá Man Utd 0-0 Liverpool: Rashford đá chính"
 date: Sun, 07 Apr 2024 02:00:00 +0700
 categories: entries VN
@@ -60,3 +89,5 @@ TRẬN ĐẤU BẮT ĐẦU Man Utd 0-0 Liverpool
 
 Đội hình ra sân Man Utd: Onana, Wan Bissaka, Maguire, Kambwala, Diogo Dalot, Casemiro, Mainoo, Garnacho, Bruno Fernandes, Rashford. Hojlund. Liverpool: Kelleher, Robertson, Virgil van Dijk, Quansah, Bradley, Szoboszlai, Endo, Mac Allister, Luis Diaz, Nunez, Salah.
 
+
+</details>
