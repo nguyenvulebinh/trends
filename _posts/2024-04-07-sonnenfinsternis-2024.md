@@ -1,5 +1,25 @@
 ---
 layout: post
+title: "🔥🔥🔥🔥 [Sonnenfinsternis 2024]  Solar Eclipse on April 8: Great Show in Germany"
+date: Mon, 08 Apr 2024 00 00 00 +0200
+categories: entries DE llm
+---
+[ Solar Eclipse on April 8: Great Show in Germany](https://www.morgenpost.de/vermischtes/article242045392/sonnenfinsternis-live-uhrzeit-nasa-livestream-update-0804.html)
+
+> The text discusses the upcoming total solar eclipse on April 8, 2024, which will be visible in North America and parts of Germany. For those unable to travel, the event can be live-streamed online. NASA offers several live broadcasts of telescopes worldwide and will stream the flight of research rockets launched during the eclipse. The Zeiss-Großplanetarium in Berlin and the Planetarium Hamburg will also provide live 360-degree views with expert commentary. In Germany, the solar eclipse will be partially visible starting at 9:44 am local time, with totality expected between 8:19 and 8:24 pm. The next total solar eclipse in Germany won't occur until September 3, 2081. Additionally, Comet Pons-Brooks has increased in brightness and can be easily observed using binoculars.
+
+![ Solar Eclipse on April 8: Great Show in Germany](https://img.sparknews.funkemedien.de/242039206/242039206_1712406465_v16_9_1600.jpeg)
+
+ Those who do not wish to fly to the United States for the solar eclipse can also follow the spectacle via live stream. Key facts. Berlin. Those who do not want to travel to the United States for the solar eclipse can also follow the event via live stream. Key facts. On April 8, a total solar eclipse will take place. However, the natural phenomenon is not visible everywhere in the world. The key facts about the celestial spectacle. Not only in North America, but also here, fans of the total solar eclipse are eagerly awaiting today, Monday (April 8, 2024). After all, it will be a long time until the next total solar eclipse in Germany - several decades. Read more: Solar Eclipse: How Long We Have to Wait in Germany and Solar Eclipse: NASA Celebrates the Natural Phenomenon - Chart Shows Shadow Path. Of course, this is not comparable to the USA, where even special flights are taking off. The Nasa offers several live broadcasts of telescopes worldwide. Furthermore, the space agency will stream the flight of three research rockets that will be launched during the solar eclipse. The NASA spectacle can also be followed digitally from Germany. The map shows where the solar eclipse of 2024 can be seen © dpa | dpa-infografik GmbH.
+
+The Zeiss-Großplanetarium in Berlin, on the other hand, is making a real event out of the natural phenomenon. The solar eclipse can be followed live in 360 degrees there. The images of the sun come in full HD quality. Great cinema is also offered by the Planetarium Hamburg. Here, too, the live images are transmitted and commented on by experts. Such a natural phenomenon will not occur again in the Hamburg sky until 2135. Those who do not wish to view the spectacle on site can follow the solar eclipse here in the live stream: Recommended External Content.
+
+Incidentally, the "Association of Amateur Astronomers" is drawing attention to a result that can be observed at the German sky: "Comet Pons-Brooks has significantly increased in brightness." It is now an easy object for any type of binoculars. Solar Eclipse 2024: Time and Live Stream. Around 7 p.m. (CEST), things will get started. Between 8.19 and 8.24 p.m., totality is expected. Then it will become dark in the middle of the day when the sun obscures itself over Mexico around noon. At that time, the moon disk will be exactly in front of the sun disk. However, the weather prospects are not particularly good. The Weather Channel has forecast clouds, partly even rain and storms for many regions in North America for the USA. In a smaller region in the northeast, there is a better chance of observing the phenomenon, reported the weather service. To experience the total solar eclipse in its full extent, a clear sky with a view of the moon and sun is necessary, writes NASA. However, the eerie darkness during the day that comes with it can also be perceived during cloudy weather. This might also interest you: Comet Heads for Earth - When and Where to See It. Further important questions and answers on the solar eclipse can be found here: FAQ.  When is the solar eclipse visible in Mexico? The partial solar eclipse is visible in Mexico starting in the morning at 9.32 am local time. The total solar eclipse begins around 11.00 am local time. USA: When is the solar eclipse visible in Washington? The celestial event occurs in Washington D.C. in the afternoon between 2.00 pm and 4.30 pm local time. California: You can see the solar eclipse in Los Angeles On the West Coast, the natural phenomenon starts at 10.00 am in the morning local time. One hour later, the total solar eclipse is reached. When was the last total solar eclipse visible in Germany? People in Germany could last experience this special alignment, where the moon completely moves in front of the sun, 25 years ago. When is the next solar eclipse visible from Germany? On March 29, 2025, it will happen again over Germany, but only a very small part of the sun's disk will be obscured. The maximum coverage will be reached on Sylt with a maximum of 25 percent, and in Hamburg around 20 percent. The next solar eclipse that will be more noticeable from Germany is on August 12, 2026. However, people in Germany will have to wait until September 3, 2081, for the next total solar eclipse.
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: "🔥🔥🔥🔥 [Sonnenfinsternis 2024] Sonnenfinsternis am 8. April: Großes Kino in Deutschland"
 date: Mon, 08 Apr 2024 00:00:00 +0200
 categories: entries DE
@@ -68,3 +88,5 @@ Am 29. März 2025 ist es wieder über Deutschland so weit. Leider wird dann von 
 
 Die nächste von Deutschland aus besser wahrnehmbare Finsternis ist dann am 12. August 2026. Für eine totale Sonnenfinsternis müssen sich die Menschen in Deutschland dagegen noch sehr lange gedulden: Erst am 3. September 2081 ist es wieder so weit.
 
+
+</details>
