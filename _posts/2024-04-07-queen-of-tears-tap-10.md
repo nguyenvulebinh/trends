@@ -1,5 +1,29 @@
 ---
 layout: post
+title: "[Queen of Tears tập 10]  Queen of Tears Surpasses Ratings of 'Reply 1988'"
+date: Sun, 07 Apr 2024 22 00 00 +0700
+categories: entries VN llm
+---
+[ Queen of Tears Surpasses Ratings of 'Reply 1988'](https://vtv.vn/van-hoa-giai-tri/queen-of-tears-vuot-rating-cua-reply-1988-20240408091109089.htm)
+
+> The "Queen of Tears" drama on tvN has reached a new milestone with a national average rating of 19.0% for its 10th episode, surpassing the 20% mark in urban areas at 20.9%, according to Nielsen Korea. This is an increase from the previous episode's ratings of 15.6% nationwide and 17.2% in the capital region. The new rating has set a record for tvN channel, surpassing several other dramas in its historical ranking. "Queen of Tears" now ranks third among tvN dramas that have surpassed the 20% mark, only behind "Goblin" and "Crash Landing on You." The drama, which focuses on a crisis and love story between two characters, has garnered significant attention from both media and fans, with speculation that it may surpass the rating of "Crash Landing on You."
+
+![ Queen of Tears Surpasses Ratings of 'Reply 1988'](https://vtv1.mediacdn.vn/fb_thumb_bn/562122370168008704/2024/4/8/photo1712543136897-1712543137139304646576.png)
+
+ According to a report by Nielsen Korea (based on paying households), the 10th episode of the "Queen of Tears" (Nữ hoàng nước mắt) drama on tvN has reached a milestone...
+Tieu Trang Ngoc Bao (Kbizoom)-Monday, April 08, 2024 10:07 GMT+7
+(Image: Kbizoom)
+According to Nielsen Korea, the "Queen of Tears" drama has recorded a national average rating of 19.0% and surpassed the 20% mark in urban areas, reaching 20.9%. With this number, the series has not only surpassed the slight decrease in ratings compared to the ninth episode the previous day (15.6% nationwide and 17.2% in the capital region) but also set a new all-time record for tvN channel.
+Previously, "Queen of Tears" had reached the eighth position in tvN's historical ranking with a rating of 16.1% in episode 8. However, with a significant increase in episode 10, the film has surpassed "Shut Up" (16.9%), "Scandal in Old Seoul" (17.0%), "Queen Cheolin" (17.4%), "Mr. Sunshine" (18.1%), and "Reply 1988" (18.8%). With the new rating achieved, "Queen of Tears" has climbed to the third position in tvN's rating chart. Currently, "Queen of Tears" is only behind "Goblin" (20.5%) and "Crash Landing on You" (21.7%) in terms of TV dramas surpassing the 20% mark.
+"Queen of Tears" revolves around a crisis and the love story between two characters - Hong Hae In (played by Kim Ji Won), the third-generation heiress of Queens Group, and Baek Hyun Woo (played by Kim Soo Hyun), the son of a local convenience store owner.
+Currently, both the media and fans of the film are eagerly waiting to see if the backlash and deepening love between the main couple will push the "Queen of Tears" ratings above 20% nationwide or not. It is also predicted that "Queen of Tears" may surpass the rating of "Crash Landing on You".
+Will "Crash Landing on You" be dethroned by "Queen of Tears"? VTV.vn - The tvN TV series "Queen of Tears" (Nữ hoàng nước mắt) has recently shown an increasing trend in ratings.
+* We invite readers to follow the broadcast programs of Vietnam Television on TV Online and VTVGo!
+
+<details>
+  <summary>Origin content</summary>
+  ---
+layout: post
 title: " [Queen of Tears tập 10] Queen of Tears vượt rating của 'Reply 1988'"
 date: Sun, 07 Apr 2024 22:00:00 +0700
 categories: entries VN
@@ -28,3 +52,5 @@ Hạ cánh nơi anh sẽ bị soán ngôi bởi Nữ hoàng nước mắt? VTV.v
 
 * Mời quý độc giả theo dõi các chương trình đã phát sóng của Đài Truyền hình Việt Nam trên TV Online và VTVGo!
 
+
+</details>
