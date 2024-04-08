@@ -49,7 +49,8 @@ def translate_text(text: str, src_lang="German", tgt_lang="English", stop_sequen
         translated_segments.append(translation_chain.invoke(input={"text": segment}))
     return " ".join(translated_segments)
 
-def summarize_text(text: str) -> str:
+def summarize_text(text: str, max_word=1024) -> str:
+    text = ' '.join(text.split()[:max_word])
     summary_chain = PromptTemplate.from_template(summary_prompt_template) | get_default_llm_model(temperature=0.) | StrOutputParser()
     return summary_chain.invoke(input={"text": text})
 
