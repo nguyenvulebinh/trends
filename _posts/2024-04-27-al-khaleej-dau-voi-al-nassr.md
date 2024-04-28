@@ -1,0 +1,34 @@
+---
+layout: post
+title: "🔥🔥 [Al Khaleej đấu với al-nassr] Video bóng đá Al Khaleej – Al Nassr: Điểm nhấn không chiến ..."
+date: Sun, 28 Apr 2024 01:00:00 +0700
+categories: entries VN
+---
+[Video bóng đá Al Khaleej – Al Nassr: Điểm nhấn không chiến ...](https://www.24h.com.vn/bong-da/video-bong-da-al-khaleej-al-nassr-diem-nhan-khong-chien-ronaldo-no-luc-saudi-pro-league-c48a1563599.html)
+
+![Video bóng đá Al Khaleej – Al Nassr: Điểm nhấn không chiến ...](https://cdn.24h.com.vn/upload/2-2024/images/2024-04-28/7-1200-1714255487-70-width1200height628-watermark.jpg)
+
+Al Nassr có chuyến làm khách của Al Khaleej ở vòng 29 Saudi Pro League. Hai đội đã nhập cuộc cực kỳ hào hứng. Chỉ trong 15 phút đầu tiên, đôi bên đều đưa vào ...
+
+Al Nassr có chuyến làm khách của Al Khaleej ở vòng 29 Saudi Pro League. Hai đội đã nhập cuộc cực kỳ hào hứng. Chỉ trong 15 phút đầu tiên, đôi bên đều đưa được bóng vào lưới của đối thủ. Thậm chí Ronaldo còn một lần dứt điểm trúng xà ngang nhưng tất cả đều không được tính do lỗi việt vị.
+
+Ronaldo có ngày thi đấu "vô duyên" đến lạ
+
+Siêu sao người Bồ Đào Nha tiếp tục được đồng đội mớm bóng trong hiệp một. Đáng tiếc, tất cả những gì Ronaldo làm được chỉ là những pha dứt điểm nguy hiểm. Hiệp một kết thúc mà không có bàn thắng nào được ghi.
+
+Sang đầu hiệp hai, Al Nassr đẩy mạnh tấn công. Ronaldo tiếp tục thể hiện sự vô duyên khi đưa bóng trúng cột dọc. Phải tới phút 68, Al Khaleej mới nhận bàn thua. Xuất phát từ pha treo bóng của Brozovic, Laporte đã chiếm lĩnh khoảng trống hay để dứt điểm tung lưới đối thủ.
+
+Sau khi nhận bàn thua, Al Kheleej dồn lên và suýt có được bàn gỡ nếu thủ thành của Al Nassr không chơi tập trung. Ronaldo tiếp tục là tâm điểm của những đường chuyền cuối nhưng CR7 có ngày thi đấu thực sự vô duyên. Tiền đạo người Bồ Đào Nha bỏ lỡ thêm 2 cơ hội ngon ăn và trận đấu kết thúc với chỉ 1 bàn lợi thế nghiêng về Al Nassr.
+
+Tỉ số chung cuộc: Al Khaleej 0-1 Al Nassr (H1: 0-0)
+
+Ghi bàn: Laporte 68’
+
+Đội hình xuất phát
+
+Al Kheleej: Sehic, Rebocho, Lopez, Al Khabrani, Al Hamsal, Rodrigeus, Masoud, Hamzi, Al Terais, Sherif, Narey
+
+Al Nassr: Ospina, Al Fatil, Laporte, Al Amri, Al Ghannam, Al Khaibari, Brozovic, Telles, Otavio, Ghareeb, Ronaldo
+
+Nguồn: [Link nguồn]Nguồn: [Link nguồn]
+
