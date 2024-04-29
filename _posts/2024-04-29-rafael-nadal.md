@@ -1,0 +1,30 @@
+---
+layout: post
+title: " [Rafael Nadal] Tennis: 'Dann haben alle Angst vor Nadal'"
+date: Mon, 29 Apr 2024 21:00:00 +0200
+categories: entries DE
+---
+[Tennis: 'Dann haben alle Angst vor Nadal'](https://www.sport1.de/news/tennis/atp/2024/04/tennis-dann-haben-alle-angst-vor-nadal)
+
+![Tennis: 'Dann haben alle Angst vor Nadal'](https://reshape.sport1.de/c/t/eec9d985-4e88-4f3d-9401-91778508f2ab/1200x630)
+
+Tennis-Star Rafael Nadal sieht sich für die anstehenden ATP-Turniere nicht in der Favoritenrolle. Rivale Daniil Medvedev kauft dem Spanier diese ...
+
+Tennis-Star Rafael Nadal gilt als einer der besten Spieler der Welt. Aufgrund seiner langen Verletzungspause im Jahr 2023 hat sich der „Sandplatz-König“ vor den anstehenden ATP-Turnieren allerdings nicht zu den Favoriten gezählt. Sein Rivale Daniil Medvedev nimmt ihm das allerdings nicht ab.
+
+{ "placeholderType": "MREC" }
+
+Nach dem Zweitrundensieg in Madrid gegen Matteo Arnaldi wurde der Russe auf Nadals Äußerungen angesprochen und wollte der Bescheidenheit nicht trauen: „Als ich seine Aussagen in Barcelona gehört habe, in denen er meinte, er wäre kein Favorit, dachte ich, dass dies nicht von seiner Form abhängt.“
+
+Tennis-Rivalen haben Angst vor Nadal
+
+Der US-Open-Sieger von 2021 fügte hinzu: „Sobald Rafa einen Sandplatz betritt, haben alle seine Rivalen Angst.“ Dass der 37-jährige Spanier im Ranking auf Position 512 abgerutscht ist, dürfte für seine Gegner keinerlei Rolle spielen. Vor allem auf dem Sandplatz gilt der 22-malige Grand-Slam-Sieger nach wie vor als Messlatte - zumindest wenn der Körper mitmacht.
+
+Wenn du hier klickst, siehst du Spotify-Inhalte und willigst ein, dass deine Daten zu den in der Datenschutzerklärung von Spotify dargestellten Zwecken verarbeitet werden. SPORT1 hat keinen Einfluss auf diese Datenverarbeitung. Du hast auch die Möglichkeit alle Social Widgets zu aktivieren. Hinweise zum Widerruf findest du hier . IMMER AKZEPTIEREN EINMAL AKZEPTIEREN
+
+„Er ist in der Lage, zwei Stunden lang zu spielen und jeden Tag zu gewinnen, er wird mit Sicherheit immer besser werden“, erklärte Tennis-Star Medvedev weiter, der zugleich klarstellte: „So sehr es den Fans Spaß bereitet, so schwierig ist es für uns restliche Spieler.“
+
+{ "placeholderType": "MREC" }
+
+Seine nach wie vor herausragenden Qualitäten stellte Nadal kürzlich beim Masters-Turnier in Madrid unter Beweis, wo er in der zweiten Runde mit Alex de Minaur die Nr. 11 der Weltrangliste in zwei Sätzen besiegte und sich so für die Niederlage aus der vorherigen Woche in Barcelona revanchierte. Der 37-Jährige kämpft in der spanischen Hauptstadt um seinen ersten Titel seit seinem 14. French-Open-Erfolg im Jahr 2022.
+
