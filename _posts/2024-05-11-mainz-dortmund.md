@@ -1,0 +1,40 @@
+---
+layout: post
+title: "🔥🔥 [Mainz Dortmund] Mainz 05 – Borussia Dortmund: Irrer Bock lässt Zuschauer wüten ..."
+date: Sat, 11 May 2024 18:00:00 +0200
+categories: entries DE
+---
+[Mainz 05 – Borussia Dortmund: Irrer Bock lässt Zuschauer wüten ...](https://www.derwesten.de/sport/fussball/bvb/mainz-05-borussia-dortmund-alexander-meyer-fehler-gegentor-id300956877.html)
+
+![Mainz 05 – Borussia Dortmund: Irrer Bock lässt Zuschauer wüten ...](https://www.derwesten.de/wp-content/uploads/sites/8/2024/05/mainz-05-bvb-e1715447668543.jpg)
+
+Ist das wirklich passiert? Bei Mainz 05 – Borussia Dortmund konnten die Fans nur ungläubig zusehen. Ein Fehler machte sie wütend.
+
+Hat der BVB einen neuen Angstgegner gefunden? Im Topspiel des 33. Spieltags der Bundesliga hieß es: Mainz 05 – Borussia Dortmund. Ein Spiel mit pikanter Vorgeschichte. Im letzten Jahr versauten die 05er den Dortmundern die Meisterschaft.
+
++++ Spieler vor Abgang – kommt es zum Blitz-Wiedersehen mit dem BVB? +++
+
+Nach dem sensationellen Einzug ins Finale der Champions League hatte es bei Mainz 05 – Borussia Dortmund fast den Anschein, als habe Dortmund mit den Party-Spätfolgen zu kämpfen. Insbesondere Alexander Meyer leiste sich einen krassen Fehler.
+
+Mainz 05 – Borussia Dortmund: Kompletter Fehlstart
+
+Die Gäste aus dem Ruhrgebiet erlebten in Mainz einen krassen Fehlstart. Bereits nach 19 Minuten stand es 0:2 aus Sicht von Edin Terzic und Co! Leandro Barreiro hatte die abstiegsbedrohten Mainzer früh in Führung gebracht (12.). Bis dahin hatte Dortmund keinen Fuß auf den Boden bekommen.
+
++++ Erst Titel, dann Abflug? BVB-Juwel vor großem Karriere-Schritt +++
+
+Und es wurde nicht besser – im Gegenteil. Während Mainz energisch kämpfte und anlief, fehlte dem BVB jegliche Körpersprache. Und dann leistete sich der eigentlich so zuverlässige Alexander Meyer bei Mainz 05 – Borussia Dortmund einen irren Fehler.
+
+Meyer schläft
+
+Was war passiert? In der 19. Minute lag der Ball am Fuß von Meyer, der das Spiel aus dem eigenen Strafraum aufbauen wollte. Dazu sah er einen einfachen Querpass zu Niklas Süle vor. Dabei übersah er jedoch Jae-Sung Lee komplett. Der fing den Pass im Dortmunder Strafraum ab und schob ins leere Netz ein.
+
+Während die Heimfans jubelten, konnten die Dortmunder Profis nur mit dem Kopf schütteln. Zumal das Ergebnis eine große Auswirkung auf den Abstiegskampf hat. Denn Mainz befindet sich im Fernduell mit Köln, Union Berlin und dem VfL Bochum.
+
+Mainz 05 – Borussia Dortmund: Fans rasten aus
+
+In erster Linie waren es aber die Dortmunder Fans, die sich schockiert vom Auftritt ihrer Mannschaft zeigten. „Das darf so NIEMALS passieren, egal ob es um was geht oder nicht…“, meckerte ein Angänger bei „X“. „Was war das denn Meyer? Ohne Worte“, verstand ein anderer die Welt nicht mehr.
+
+Weitere Nachrichten kannst du hier lesen:
+
+Und wer den Schaden hat, braucht auch bei Mainz 05 – Borussia Dortmund für den Spott nicht zu sorgen. „Meyer ist wohl zu viel über den Biertisch in der Pariser Kabine gerutscht“, spottete ein Fan in Anlehnung an die Feierlichkeiten nach dem Halbfinale.
+
