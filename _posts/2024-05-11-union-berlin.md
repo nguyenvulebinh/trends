@@ -1,0 +1,44 @@
+---
+layout: post
+title: "🔥🔥🔥 [Union Berlin] Live! Steigt der 1. FC Köln heute gegen Union Berlin ab?"
+date: Sat, 11 May 2024 17:00:00 +0200
+categories: entries DE
+---
+[Live! Steigt der 1. FC Köln heute gegen Union Berlin ab?](https://www.waz.de/sport/article242306382/Live-Steigt-der-1-FC-Koeln-heute-gegen-Union-Berlin-ab.html)
+
+![Live! Steigt der 1. FC Köln heute gegen Union Berlin ab?](https://img.sparknews.funkemedien.de/242308318/242308318_1715444510_v16_9_1600.jpeg)
+
+Dank einer Energieleistung darf der 1. FC Köln weiter auf den Klassenerhalt in der Fußball-Bundesliga hoffen. Die Mannschaft von Trainer Timo Schultz gewann ...
+
+Köln. Der 1. FC Köln hat nach einem 0:2-Rückstand noch 3:2 gegen Union Berlin gewonnen. Die Rheinländer hoffen plötzlich wieder auf den Klassenerhalt.
+
+Dank einer Energieleistung darf der 1. FC Köln weiter auf den Klassenerhalt in der Fußball-Bundesliga hoffen. Die Mannschaft von Trainer Timo Schultz gewann gegen Union Berlin 3:2 (1:2) und rückte bis auf drei Punkte an den Abstiegskonkurrenten heran. Dabei überzeugte der FC mit großer Moral und machte einen Zwei-Tore-Rückstand wett, doch für ein Happy End braucht der Köln am kommenden Wochenende zwingend einen Sieg beim 1. FC Heidenheim und ist auf Schützenhilfe angewiesen.
+
+Robin Knoche (15.) und Kevin Volland (19., Handelfmeter nach Videobeweis) schockten den FC mit zwei schnellen Toren, aber Kapitän Florian Kainz (45., Foulelfmeter), Steffen Tigges (87.) und Damion Downs (90.+3.) drehten das Spiel und schenkten dem FC wieder neue Hoffnung. Berlin, das nun bereits seit sieben Spielen auf einen Sieg wartet, ist dagegen wieder mittendrin im Abstiegskampf.
+
+1. FC Köln mit Transfersperre
+
+Für den FC hätte der Absturz in die 2. Liga weitreichende Folgen. Dort müsste er unter schwierigsten Bedingungen einen Neuanfang starten. Wegen der vom Weltverband Fifa verhängten Transfersperre kann der FC keine neuen Spieler verpflichten, die er aber dringend benötigt, zudem drohen Abgänge. Der bis 2026 laufende Vertrag des verletzten Stürmers Davie Selke hat nur in der Bundesliga Gültigkeit, die wenigen Leistungsträger wie Abwehrchef Jeff Chabot oder Torhüter Marvin Schwäbe stehen längst bei anderen Klubs auf dem Zettel. Auch ist völlig offen, ob Schultz, der auf den kurz vor Weihnachten entlassenen Steffen Baumgart folgte, weitermachen darf.
+
+Kölns Faride Alidou (r.) im Duell mit Berlins Danilho Doekhi. © dpa | Federico Gambarini
+
+Schultz hatte den Spielern noch kurz vor Anpfiff bei Sky sein „100 prozentiges Vertrauen“ ausgesprochen, und wie oft in dieser Saison begannen die Kölner mutig und forsch. Doch nach verheißungsvollen ersten Minuten folgten zwei Tiefschläge. Schwäbe sah bei Knoches Treffer nicht gut aus, kurz darauf berührte Kölns Faride Alidou den Ball im Strafraum mit dem Arm. Volland ließ sich die Gelegenheit vom Elfmeterpunkt nicht entgehen.
+
+Die anfangs noch lautstarken Kölner Fans verstummten größtenteils, nur die Anhänger auf der Südkurve versuchten, ihre Mannschaft aufzurütteln - doch es half nicht. Der FC wirkte gehemmt und wie gelähmt, er fand nicht in den Rhythmus, bis Rani Khedira Timo Hübers im Strafraum umriss und Kainz den fälligen Elfmeter verwandelte.
+
+Köln-Trainer Schultz erhöht das Risiko
+
+Urplötzlich keimte trotz der bislang schwachen Leistung Hoffnung auf, und Schultz erhöhte das Risiko. Der Trainer stellte auf eine Dreierkette um und wechselte unter anderem den Ex-Dortmunder Steffen Tigges ein. Das hätte fast umgehend Wirkung gezeigt: Alidou schoss nach einer von Tigges per Kopf verlängerten Flanke über das Tor (50.).
+
+Es gelang dem FC aber nicht, dauerhaft Druck aufzubauen und weitere Chancen herauszuspielen. Union störte den Spielfluss geschickt, Robin Gosens (67.) verpasste mit einem Kopfball an die Latte den dritten Treffer der Berliner. Doch Köln kämpfte sich zurück und drehte die Begegnung in einer dramatischen Schlussphase. (sid)
+
+Die Live-Ticker zum Nachlesen:
+
+1. FC Köln - Union Berlin 3:2
+
+Borussia Mönchengladbach - Eintracht Frankfurt 1:1
+
+RB Leipzig - Werder Bremen 1:1
+
+SC Freiburg - 1. FC Heidenheim 1:1
+
