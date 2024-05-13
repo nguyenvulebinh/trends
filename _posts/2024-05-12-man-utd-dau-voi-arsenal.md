@@ -1,0 +1,34 @@
+---
+layout: post
+title: "🔥🔥🔥🔥 [Man Utd đấu với Arsenal] [Kết quả] Man Utd 0-1 Arsenal: vòng 37 Ngoại hạng Anh"
+date: Sun, 12 May 2024 18:00:00 +0700
+categories: entries VN
+---
+[[Kết quả] Man Utd 0-1 Arsenal: vòng 37 Ngoại hạng Anh](https://vnexpress.net/man-utd-vs-arsenal-4745190.html)
+
+![[Kết quả] Man Utd 0-1 Arsenal: vòng 37 Ngoại hạng Anh](https://vcdn1-thethao.vnecdn.net/2024/05/12/screenshot-2024-05-12-at-23-22-1683-5008-1715531003.png?w=1200&h=0&q=100&dpr=1&fit=crop&s=jIyLxDglYRZ_22ZelV-tvA)
+
+Anh- Bàn duy nhất của Leandro Trossard giúp "Pháo thủ" thắng 1-0 tại Old Trafford ở vòng 37, qua đó đòi lại đỉnh bảng Ngoại hạng Anh. - VnExpress.
+
+AnhBàn duy nhất của Leandro Trossard giúp "Pháo thủ" thắng 1-0 tại Old Trafford ở vòng 37, qua đó đòi lại đỉnh bảng Ngoại hạng Anh.
+
+Hậu vệ Bồ Đào Nha dốc bóng đến trước cấm địa Arsenal rồi tỉa bóng sang cánh phải cho Amad, nhưng Trossard một lần nữa lùi về kịp thời để bọc lót cho hàng thủ đội khách. Ở pha phạt góc tiếp theo, Dalot lại có cơ hội dứt điểm từ xa, nhưng sút quá thiếu chính xác. Man Utd đã sút bốn lần từ đầu trận, dù chưa lần nào trúng đích. Arsenal dứt điểm hai lần với một lần trúng đích.
+
+Arsenal được hưởng quả phạt góc thứ hai từ đầu trận. Saka treo bổng đến vị trí của Gabriel. Trung vệ Brazil đánh đầu ngược, nhắm đến góc xa nhưng bóng đi hơi cao so với khung thành.
+
+Xuất phát từ pha phạt góc cánh phải, bóng đến chân Amad Diallo. Cầu thủ trẻ của Man Utd đột phá vào trung lộ, trước khi dứt điểm chân trái nhưng bị hàng thủ Arsenal chặn lại. Man Utd sau đó đoạt lại bóng, tiếp tục tổ chức tấn công. Nhưng đường chuyền của McTominay cho Amad đã bị Trossard chặn lại.
+
+Man Utd tấn công. Garnacho đột phá từ cánh trái vào trung lộ. Tiền đạo người Argentina bị các hậu vệ và tiền vệ Arsenal truy cản nhưng vẫn lách qua trước khi tung cú sút chân phải. Bóng đập chân một hậu vệ Arsenal rồi đi vọt xà.
+
+Arsenal giao bóng trước. Họ lập tức đưa bóng hướng lên trên và kiếm về một quả phạt góc sau pha đi bóng không thành công của Ordegaard. Ở pha đá phạt góc tiếp theo, Arsenal treo bóng về phía cột xa nhưng bị hàng thủ Man Utd phá ra.
+
+Man City đánh bại Fulham tối thứ Bảy đồng nghĩa Arsenal phải giành ba điểm trên sân Old Trafford nếu muốn đòi lại đỉnh bảng. Lúc này, thầy trò Mikel Arteta đang kém đối thủ hai điểm. Arsenal không còn quyền tự quyết do đá nhiều hơn đối thủ một trận. Tất cả những gì "Pháo thủ" có thể làm là toàn thắng hai trận còn lại và hy vọng Man City sảy chân.
+
+Tương tự, Man Utd cũng cần thắng để nuôi hy vọng dự Cup châu Âu. Hiện, thầy trò Erik ten Hag kém Chelsea ba điểm. Nếu thua Arsenal, họ gần như hết cơ hội giành vị trí thứ bảy, bởi đang kém xa Chelsea về hiệu số bàn thắng bại (-3 so với 12).
+
+Arsenal đang áp đảo Man Utd về mặt phong độ. Họ toàn thắng bốn trận gần đây, ghi ít nhất hai bàn mỗi trận và giữ sạch lưới ba trong số đó. Trong khi đó, tuy gặp những đối thủ dưới cơ gần đây, Man Utd không đạt kết quả tốt. Vòng trước, họ vừa thua đậm 0-4 trên sân Crystal Palace và trước đó một vòng, bị đội áp chót Burnley cầm hòa 1-1.
+
+Tin vui với Man Utd là họ sẽ chào đón sự trở lại của thủ quân Bruno Fernandes sau khi tiền vệ Bồ Đào Nha vắng mặt ở trận gặp Palace. Scott McTominay và Marcus Rashford cũng đã tập trở lại nhưng hàng thủ "Quỷ đỏ" vẫn sứt mẻ nghiêm trọng bởi chấn thương của Luke Shaw, Harry Maguire, Victor Lindelof, Raphael Varane và Willy Kambwala. Về phía Arsenal, khả năng ra sân của Bukayo Saka và Takehiro Tomiyasu còn để ngỏ.
+
+Quang Huy
+
