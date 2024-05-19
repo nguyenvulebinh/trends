@@ -1,0 +1,44 @@
+---
+layout: post
+title: " [Thứ trưởng Bộ Công an] Chưa miễn nhiệm chức danh Bộ trưởng Công an của ông Tô Lâm"
+date: Sun, 19 May 2024 09:00:00 +0700
+categories: entries VN
+---
+[Chưa miễn nhiệm chức danh Bộ trưởng Công an của ông Tô Lâm](https://thanhnien.vn/chua-mien-nhiem-chuc-danh-bo-truong-cong-an-cua-ong-to-lam-185240519091328294.htm)
+
+![Chưa miễn nhiệm chức danh Bộ trưởng Công an của ông Tô Lâm](https://images2.thanhnien.vn/zoom/600_315/528068263637045248/2024/5/19/to-lam-btbca-1-17160845741681641375222-292-319-1465-2196-crop-1716084614125167180445.jpg)
+
+Tổng thư ký Quốc hội Bùi Văn Cường cho biết, tại kỳ họp 7, Quốc hội sẽ bầu chức danh Chủ tịch nước đối với ông Tô Lâm, song sẽ không thực hiện quy trình ...
+
+Sáng 19.5, Tổng thư ký Quốc hội họp báo về dự kiến chương trình kỳ họp 7 Quốc hội khóa XV, khai mạc từ ngày mai 20.5.
+
+Tổng thư ký Quốc hội Bùi Văn Cường thông tin tại họp báo sáng 19.5 GIA HÂN
+
+Trả lời câu hỏi của Thanh Niên về chương trình bầu Chủ tịch nước với ông Tô Lâm, Bộ trưởng Công an và bầu Chủ tịch Quốc hội với ông Trần Thanh Mẫn, Phó chủ tịch thường trực Quốc hội, tại kỳ họp 7, Tổng thư ký Quốc hội Bùi Văn Cường cho biết, ngày hôm qua, Hội nghị T.Ư 9 đã thành công với kết quả tốt đẹp.
+
+Theo đó, tại kỳ họp 7, Quốc hội sẽ bầu Chủ tịch nước và Chủ tịch Quốc hội. Cụ thể, theo thiết kế chương trình, vào cuối giờ sáng ngày khai mạc 20.5, Quốc hội sẽ bắt đầu tiến hành công tác nhân sự tại kỳ họp và tới sáng 22.5 sẽ hoàn thành. Cũng theo ông Bùi Văn Cường, Quốc hội sẽ bầu Chủ tịch Quốc hội trước, sau đó bầu Chủ tịch nước theo quy định.
+
+Tổng thư ký Quốc hội nhấn mạnh, tại điều 4 Hiến pháp đã hiến định Đảng Cộng sản Việt Nam là lực lượng lãnh đạo Nhà nước và xã hội. Một trong những phương thức lãnh đạo của Đảng, theo ông Cường, là cử và giới thiệu cán bộ để bầu cử, ứng cử hoặc quyết định bổ nhiệm vào các vị trí của các cơ quan Nhà nước, đoàn thể chính trị, xã hội.
+
+Quốc hội sẽ không miễn nhiệm chức danh Bộ trưởng Công an với ông Tô Lâm tại kỳ họp 7 GIA HÂN
+
+Về câu hỏi, trong quy trình bầu Bộ trưởng Công an Tô Lâm làm Chủ tịch nước, có bao gồm quy trình miễn nhiệm chức vụ Bộ trưởng Công an của ông Tô Lâm hay không và tại kỳ họp lần này, Quốc hội có thực hiện quy trình phê chuẩn bổ nhiệm nhân sự Bộ trưởng Bộ Công an thay ông Tô Lâm hay không, Tổng thư ký Quốc hội Bùi Văn Cường thông tin, trong Hội nghị T.Ư 9 khóa XIII, T.Ư Đảng cũng chưa giới thiệu nhân sự để bổ nhiệm Bộ trưởng Công an.
+
+"Vì thế, tại kỳ họp này chưa phê chuẩn, miễn nhiệm chức danh Bộ trưởng Công an", ông Bùi Văn Cường nói.
+
+Ông Cường nói thêm, vừa qua, Bộ trưởng TN-MT Trần Hồng Hà khi được giới thiệu để phê chuẩn bổ nhiệm làm Phó thủ tướng Chính phủ cũng không miễn nhiệm chức danh Bộ trưởng Bộ TN-MT và vẫn tiếp tục giữ chức vụ Bộ trưởng TN-MT một thời gian.
+
+Chưa miễn nhiệm chức danh Bộ trưởng Bộ Công an của ông Tô Lâm
+
+"Hiện cơ quan có thẩm quyền là Bộ Chính trị chưa có giới thiệu nhân sự mới cho chức danh Bộ trưởng Công an. Do đó, trong chương trình nghị sự của kỳ họp 7 chưa có nội dung phê chuẩn, miễn nhiệm đối với chức danh Bộ trưởng Công an", ông Cường khẳng định.
+
+Thông tin thêm về nhân sự Quốc hội, ông Nguyễn Tuấn Anh, Phó trưởng ban Công tác đại biểu, cũng cho hay, tại kỳ họp lần này, Quốc hội cũng chưa thực hiện bầu mới phó chủ tịch Quốc hội thay cho vị trí của ông Trần Thanh Mẫn.
+
+Trong thông báo chiều qua, ngay sau khi kết thúc Hội nghị T.Ư 9 khóa XIII, Văn phòng T.Ư Đảng cho biết, T.Ư thống nhất rất cao giới thiệu ông Tô Lâm, Ủy viên Bộ Chính trị, Bộ trưởng Bộ Công an, để Quốc hội khóa XV bầu giữ chức Chủ tịch nước và ông Trần Thanh Mẫn, Ủy viên Bộ Chính trị, Phó chủ tịch thường trực Quốc hội, để Quốc hội khóa XV bầu giữ chức Chủ tịch Quốc hội.
+
+Ông Tô Lâm (67 tuổi), quê H.Văn Giang, tỉnh Hưng Yên, trình độ giáo sư, tiến sĩ. Ông Tô Lâm là Ủy viên Bộ Chính trị khóa XII, XIII; Ủy viên T.Ư Đảng các khóa XI, XII, XIII; Bí thư Đảng ủy Công an T.Ư, đại tướng, Bộ trưởng Bộ Công an; Phó trưởng ban Chỉ đạo T.Ư về phòng, chống tham nhũng, tiêu cực. Ông Tô Lâm là đại biểu Quốc hội các khóa XIV, XV. Sự nghiệp của ông Tô Lâm gắn liền với ngành công an.
+
+Từ năm 1979, ông Tô Lâm lần lượt trải qua nhiều chức vụ trong ngành công an như Phó trưởng phòng rồi Trưởng phòng Cục Bảo vệ chính trị I, Phó cục trưởng Cục Bảo vệ chính trị I rồi Cục trưởng Cục Bảo vệ chính trị III, Phó tổng cục trưởng Tổng cục An ninh rồi Phó tổng cục trưởng phụ trách Tổng cục An ninh I, Tổng cục trưởng Tổng cục An ninh I. Từ năm 2010, ông được bổ nhiệm làm Thứ trưởng Bộ Công an.
+
+
+
