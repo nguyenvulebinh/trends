@@ -1,0 +1,26 @@
+---
+layout: post
+title: " [Epic Games] 22h tối nay, Epic sẽ phát miễn phí game bom tấn tiền triệu"
+date: Fri, 24 May 2024 10:00:00 +0700
+categories: entries VN
+---
+[22h tối nay, Epic sẽ phát miễn phí game bom tấn tiền triệu](https://gamek.vn/22h-toi-nay-epic-se-phat-mien-phi-game-bom-tan-tien-trieu-178240523123103284.chn)
+
+![22h tối nay, Epic sẽ phát miễn phí game bom tấn tiền triệu](https://gamek.mediacdn.vn/zoom/600_315/133514250583805952/2024/5/23/photo-1716442158800-1716442159367471694777-0-36-270-468-crop-17164422039241893891728.png)
+
+Sự kiện mùa hè của Epic Games Store sẽ tiếp tục diễn ra vào tối nay 23/5 với 1 tựa game bom tấn hoàn toàn miễn phí.
+
+Sự kiện mùa hè của Epic Games Store sẽ tiếp tục diễn ra vào tối nay 23/5 với 1 tựa game bom tấn hoàn toàn miễn phí.
+
+Trong tuần trước, món quà mà cộng đồng game thủ được nhận chính là Dragon Age: Inquisition, trò chơi hay nhất thế giới năm 2014. Hiện tựa game này đang được bán trên Steam với giá gần 800.000đ. Như vậy, game thủ chắc chắn đã tiết kiệm được 1 khoản kha khá khi tham gia sự kiện trên Epic.
+
+Việc phát tặng miễn phí Dragon Age: Inquisition vẫn đang diễn ra từ giờ cho đến hết 22h tối nay, ngày 23/5. Các bạn chưa nhận game hãy nhanh tay đăng nhập để lữu trữ một trong những trò chơi hay nhất thế giới vào bộ sưu tập của mình.
+
+Sau khi kết thúc phát tặng Dragon Age: Inquisition, Epic sẽ tiếp tục mở miễn phí 1 bom tấn AAA. Hiện vẫn chưa rõ trò chơi này tên là gì. Các bạn cần chờ đến qua 22h để biết chính xác và có thể tải luôn khi sự kiện bắt đầu.
+
+Trong quá khứ, Epic từng tặng rất nhiều game bom tấn những với giá chỉ 0 đồng. Game thủ chỉ cần đăng nhập là có thể sở hữu vĩnh viễn. Một số trò chơi nối bật có thể kể đến nhưu GTA 5, Watch Dog 1&2, ARK...
+
+
+
+https://gamek.vn/22h-toi-nay-epic-se-phat-mien-phi-game-bom-tan-tien-trieu-178240523123103284.chn
+
