@@ -1,0 +1,18 @@
+---
+layout: post
+title: "🔥🔥 [Fussball em] Fußball-EM 2024: Glaubt Landesfußballpräsident Holger ..."
+date: Fri, 07 Jun 2024 23:00:00 +0200
+categories: entries DE
+---
+[Fußball-EM 2024: Glaubt Landesfußballpräsident Holger ...](https://www.mz.de/lokal/merseburg/glaubt-landesfussballprasident-holger-stahlknecht-an-den-em-titel-fur-deutschland-3858991)
+
+![Fußball-EM 2024: Glaubt Landesfußballpräsident Holger ...](https://bmg-images.forward-publishing.io/2024/06/07/5be921fc-2538-4f71-988c-891d780f5615.jpeg?rect=113%2C0%2C1248%2C1147&w=1024)
+
+Dafür waren der Präsident des Landesfußballverbandes, Holger Stahlknecht, Siegmar Reinsch, Präsident der SV Eintracht 1990 Bad Dürrenberg und Holger Drischmann, ...
+
+Landesfußballpräsident Holger Stahlknecht zu Besuch beim Weinlaubengespräch auf der Laga. Welche Probleme er im heutigen Fußball sieht.
+
+Jetzt digital weiterlesen Unser digitales Angebot bietet Ihnen Zugang zu allen exklusiven Inhalten auf MZ.de sowie zur digitalen Zeitung. Sie sind bereits Abonnent? Hier Anmelden 4 Wochen für 0,00 € Jetzt registrieren und 4 Wochen digital lesen. 4 Wochen/ 0,00 € Wenn Sie bereits Abonnent der gedruckten Ausgabe sind, können Sie die digitale Zeitung >>HIER<< bestellen.
+
+Bad Dürrenberg/MZ. - In genau einer Woche ist es so weit. Mit dem Eröffnungsspiel in München startet offiziell die Fußball-Europameisterschaft in Deutschland. Ein passender Anlass, um über die Lage des Fußballs in Sachsen-Anhalt zu sprechen. Dafür waren der Präsident des Landesfußballverbandes, Holger Stahlknecht, Siegmar Reinsch, Präsident der SV Eintracht 1990 Bad Dürrenberg und Holger Drischmann, Abteilungsleiter Fußball der SV Eintracht, am Dienstag beim Weinlaubengespräch auf der Laga zu Gast.
+
