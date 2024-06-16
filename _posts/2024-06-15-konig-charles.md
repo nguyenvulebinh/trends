@@ -1,0 +1,36 @@
+---
+layout: post
+title: "🔥🔥 [König Charles] König Charles III. fest entschlossen: Royal muss Haus räumen ..."
+date: Sat, 15 Jun 2024 13:00:00 +0200
+categories: entries DE
+---
+[König Charles III. fest entschlossen: Royal muss Haus räumen ...](https://www.schlager.de/news/koenig-charles-prinz-andrew-royal-lodge-windsor-sarah-ferguson-a/257706/)
+
+![König Charles III. fest entschlossen: Royal muss Haus räumen ...](https://static.schlager.de/uploads/2024/06/www.schlager.de-imago0374360082h-e1718360182827.jpg)
+
+Neben Prinz William, Prinzessin Kate und den drei gemeinsamen Kindern wohnt auch das schwarze Schaf der Royalfamily, Prinz Andrew, zusammen mit seiner Ex-Frau ...
+
+Das ist der Werdegang von König Charles III. – von seiner Kindheit bis hin zu seiner Rolle als Monarch.
+
+Als Monarch muss König Charles III. nicht nur seinen Aufgaben als Staatsoberhaupt nachkommen, sondern zusätzlich auch noch die “Firma” leiten. Damit gemeint ist die Royalfamily, die den 75-Jährigen tatkräftig unterstützt, sowohl mit öffentlichen Terminen als auch im Verborgenen.
+
+Im Gegenzug profitieren die Familienmitglieder von jeder Menge Vorteilen, darunter beispielsweise einem Wohnsitz auf einem der royalen Anwesen. Vorbehalten ist ein solcher aber nur Verwandten von Charles, die sich an die Spielregeln der Windsors halten. Wer negativ auffällt, muss um sein Heim fürchten. So wie derzeit auch ein in Ungnade gefallener Royal.
+
+König Charles III.: Hier lebt Prinz Andrew seit rund 20 Jahren
+
+Schloss Windsor ist das größte durchgängig bewohnte Schloss der Welt. Es gehört der britischen Krone und war nicht nur in der Vergangenheit das Zuhause von zahlreichen Royals, sondern ist es noch bis heute. Nicht nur König Charles III. verbringt gerne Zeit auf dem Areal in Berkshire, auch andere Familienmitglieder lieben das dortige Leben vor den Toren Londons.
+
++++ König Charles III. reicht’s: DAMIT wird er sich nicht zufriedengeben +++
+
+Neben Prinz William, Prinzessin Kate und den drei gemeinsamen Kindern wohnt auch das schwarze Schaf der Royalfamily, Prinz Andrew, zusammen mit seiner Ex-Frau Sarah Ferguson in Windsor. Schon seit über 20 Jahren nennen die beiden die Royal Lodge ihr Zuhause. Ein stattliches 30-Zimmer-Anwesen.
+
+Darum will König Charles III., dass Andrew auszieht
+
+Vor allem Andrew scheint sich dort pudelwohl zu fühlen. Regelmäßig wird er bei Ausritten rund um die Lodge gesichtet. Wie lange dem aber noch so sein wird, ist unklar. Denn König Charles III. möchte seinen Bruder lieber früher als später aus der Lodge heraushaben, am liebsten noch dieses Jahr. Der Monarch sei nicht bereit, für das Leben von Andrew aufzukommen, heißt es.
+
+Ein wesentlicher Grund dafür dürfte Prinz Andrews Verbindung zu dem verurteilten und inzwischen verstorbenen Sexualstraftäter Jeffrey Epstein sein. Auch die Vorwürfe von Virgina Roberts, die behauptete, als Minderjährige Sex mit dem Royal gehabt zu haben, dürften ihren Teil dazu beigetragen haben.
+
+Prinz Andrew kostete die Freundschaft zu Epstein und die schweren Anschuldigungen von Roberts sein Ansehen und seine militärischen Titel. Öffentliche Termine für die Royalfamily darf er ebenfalls nicht mehr wahrnehmen. Bald könnte er außerdem sein Zuhause los sein.
+
+König Charles III. ließ seinen Bruder und Sarah Ferguson vorerst noch in der Royal Lodge leben, nachdem seine Ex-Schwägerin an Krebs erkrankt war. Inzwischen befindet sie sich aber auf dem Weg der Besserung und die Güte des Monarchen dürfte nicht mehr allzu lange walten.
+
