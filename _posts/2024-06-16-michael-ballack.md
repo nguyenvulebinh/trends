@@ -1,0 +1,48 @@
+---
+layout: post
+title: "🔥🔥 [Michael Ballack] EM 2024: Laura Wontorra stichelt gegen Ex-DFB-Star Michael Ballack"
+date: Mon, 17 Jun 2024 00:00:00 +0200
+categories: entries DE
+---
+[EM 2024: Laura Wontorra stichelt gegen Ex-DFB-Star Michael Ballack](https://www.watson.de/sport/em-2024/892019751-em-2024-laura-wontorra-stichelt-gegen-ex-dfb-star-michael-ballack)
+
+![EM 2024: Laura Wontorra stichelt gegen Ex-DFB-Star Michael Ballack](https://www.watson.de/imgdb/7a39/Qx,F,0,123,2002,1125,610,315,333,222/3871014700353110)
+
+Während der EM ist Michael Ballack als Experte bei MagentaTV tätig, dort gab es nun eine kleine Spitze von Moderatorin Laura Wontorra.
+
+Michael Ballack ist als Experte bei MagentaTV während der Europameisterschaft in Deutschland tätig. Bild: Imago Images / Chai v.d. Laage
+
+EM 2024
+
+EM 2024: Laura Wontorra stichelt gegen Ex-DFB-Star Michael Ballack
+
+Nikolai Stübner Folgen
+
+Mehr «Sport»
+
+Der erste Spieltag der Europameisterschaft in Deutschland ist voll im Gange. Spätestens am Dienstag hat jedes Team ein Spiel absolviert und einen ersten sportlichen Eindruck hinterlassen.
+
+Die DFB-Elf rund um Bundestrainer Julian Nagelsmann hat dabei mit dem 5:1-Sieg zum Auftakt geglänzt und den bislang höchsten Sieg eingefahren. Am Mittwoch gegen Ungarn (18 Uhr) kann die Nationalmannschaft nachlegen.
+
+Höre hier den Trailer des neuen watson-Podcasts "Toni Kroos – The Underrated One" – natürlich kannst du ihn auch gerne direkt abonnieren:
+
+Am Dienstag werden mit Georgien, Tschechien, Portugal und der Türkei die letzten Mannschaften ins Turnier starten. Standesgemäß werden die ersten Auftritte eines Teams mit Spannung erwartet, erst dann ist klar, in welcher Verfassung die jeweiligen Spieler sind.
+
+EM 2024: Wontorra mit Spitze gegen Michael Ballack
+
+Genau dieser Turnier-Auftakt wurde nun bei MagentaTV auch von Moderatorin Laura Wontorra kurz vor dem Spiel zwischen Belgien und der Slowakei thematisiert. Zunächst wollte sie von der Expertin, Tabea Kemme, wissen, ob die Belgier und die Slowaken auf dem Weg ins Stadion das andere Spiel ihrer Gruppe auch verfolgen würden.
+
+Watson ist jetzt auf Whatsapp Jetzt auf Whatsapp und Instagram: dein watson-Update! Wir versorgen dich ! Wir versorgen dich hier auf Whatsapp mit den watson-Highlights des Tages. Nur einmal pro Tag – kein Spam, kein Blabla, nur sieben Links. Versprochen! Du möchtest lieber auf Instagram informiert werden? Hier findest du unseren Broadcast-Channel.
+
+Bereits um 15 Uhr spielten in der Gruppe E Rumänien gegen die Ukraine (3:0). Kemme sagte, dass beide Teams in jedem Fall auch die erste Partie ihrer Gruppe auf dem Schirm hätten: "Alles wird verfolgt in dieser Gruppe, auch hinsichtlich des nächsten Spiels."
+
+Im Anschluss daran wollte Laura Wontorra vom zweiten Experten, Ex-DFB-Kapitän Michael Ballack, wissen, wie er sich jeweils auf die ersten Spiele bei großen Turnieren vorbereitet habe. Die kurze und klare Antwort des "Capitanos": "Mich konzentriert." Danach musste er kurz lachen.
+
+Laura Wontorra moderiert die EM bei MagentaTV. Bild: dpa / Rolf Vennenbernd
+
+Wontorra hakte allerdings nach und neckte: "Kannst du das, ja?" Ein weiteres Schmunzeln ist bei Ballack zu erkennen. "Natürlich", entgegnet er entschlossen und fügt an: "Vorbereitet war ich ja. Aber ich habe versucht, mich eher abzulenken. Aufgeregt ist man genug. Man versucht, gewisse Dinge nochmal durchzuspielen, was passieren könnte im Spiel bei eventuellen Spielständen."
+
+Wontorra wollte von Ballack zusätzlich wissen, ob er sich auch auf die gegnerischen Spieler vorbereitet habe. Ballack winkte ab, war sich sicher, dass die Spieler verschiedener Teams sich auf diesem Niveau untereinander kennen würden. "Ich glaube, da musst du nicht auf jeden einzelnen vorbereitet sein. Aber es sind persönliche Dinge während so einem Spiel."
+
+Die Taktik von Ballack ist zumindest dem ehemaligen Mittelfeldspieler gelungen. Er kam bei den Europameisterschaften 2004 und 2008 und bei der Weltmeisterschaft 2002 jeweils im deutschen Auftaktspiel zum Einsatz, verlor keine Partie davon.
+
