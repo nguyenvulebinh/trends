@@ -1,0 +1,34 @@
+---
+layout: post
+title: "🔥🔥🔥🔥 [Bồ Đào Nha đấu với Séc] HLV tuyển CH Séc tuyên bố sẽ khiến Bồ Đào Nha và Ronaldo ôm hận"
+date: Mon, 17 Jun 2024 02:00:00 +0700
+categories: entries VN
+---
+[HLV tuyển CH Séc tuyên bố sẽ khiến Bồ Đào Nha và Ronaldo ôm hận](https://dantri.com.vn/the-thao/hlv-tuyen-ch-sec-tuyen-bo-se-khien-bo-dao-nha-va-ronaldo-om-han-20240618144519873.htm)
+
+![HLV tuyển CH Séc tuyên bố sẽ khiến Bồ Đào Nha và Ronaldo ôm hận](https://cdnphoto.dantri.com.vn/KUQyCwXVMoijYAb6DZxZIm6gUAw=/zoom/1200_630/2024/06/18/1718640001125ce64796e-12c9-4548-crop-1718696578940.jpeg)
+
+(Dân trí) - HLV đội tuyển CH Séc, Ivan Hasek khẳng định việc ngăn chặn tiền đạo Cristiano Ronaldo nằm trong kế hoạch của ông với mục tiêu giành trọn 3 điểm.
+
+"Chúng tôi sẽ vô hiệu hóa hoàn toàn Ronaldo. Các cầu thủ của chúng tôi sẽ luôn phải ghi nhớ điều này trong suốt trận đấu", HLV Ivan Hasek bày tỏ trước thềm trận ra quân giữa CH Séc và Bồ Đào Nha diễn ra vào 02h00 ngày mai (19/6) thuộc bảng F Euro 2024 trên sân Red Bull Arena (Leipzig, Đức).
+
+Ronaldo chuẩn bị bước vào giải đấu lớn thứ 11 trong sự nghiệp, tiền đạo người Bồ Đào Nha đang giữ kỷ lục ra sân nhiều nhất (25 trận), ghi nhiều bàn thắng nhất (14 bàn) và có nhiều pha kiến tạo nhất (6 pha) tại Euro, đồng thời lập kỷ lục ghi bàn trong 5 kỳ Euro liên tiếp.
+
+HLV Ivan Hasek tự tin khẳng định các cầu thủ CH Séc sẽ vô hiệu hóa hoàn toàn Ronaldo ở trận ra quân gặp Bồ Đào Nha (Ảnh: Getty).
+
+Tại các kỳ World Cup và Euro, cựu cầu thủ Real Madrid và Man Utd đã ra sân tổng cộng 47 lần, nhiều nhất so với bất kỳ cầu thủ châu Âu nào, ghi 22 bàn và kiến tạo 8 bàn.
+
+Tuy nhiên thay vì lo ngại việc phải đối đầu với cầu thủ từng 5 lần giành Quả bóng vàng, HLV Ivan Hasek bày tỏ sự thách thức trước Ronaldo khi CH Séc có trận ra quân gặp Bồ Đào Nha.
+
+"Ronaldo là một trong những cầu thủ giỏi nhất và Bồ Đào Nha tự tin rằng việc có mặt anh ấy sẽ giúp họ thành công. Tôi không muốn nói trước mọi chuyện nhưng chúng tôi tin rằng sẽ đánh bại anh ấy", HLV Ivan Hasaek bày tỏ.
+
+Theo thống kê, với việc có mặt ở vòng chung kết Euro 2024 tại Đức, đội tuyển CH Séc có lần thứ 8 liên tiếp xuất hiện ở giải đấu này.
+
+Thành tích 8 lần liên tiếp này bắt đầu từ giải đấu năm 1996, nơi CH Séc cán đích ở vị trí á quân tại Anh. Hiện chỉ có tuyển Đức (14 kỳ) và Pháp (9 kỳ) là có số lần tham dự Euro liên tiếp dài hơn CH Séc.
+
+Với việc CH Séc được nhiều người cho rằng sẽ cạnh tranh với Thổ Nhĩ Kỳ để giành vị trí thứ hai ở bảng F, HLV Ivan Hasek nói rằng điều quan trọng không phải là cách đội ông bắt đầu vòng bảng mà là cách kết thúc vòng bảng.
+
+"Điều quan trọng nhất ở giải đấu này là trận đấu cuối cùng. Vì vậy, trận đấu đầu tiên thực sự không quyết định được điều gì. Tất cả 26 cầu thủ của chúng tôi đều đã sẵn sàng, họ khỏe mạnh, sung sức và chúng tôi không thể chờ đợi. Chúng tôi thực sự vui mừng về ngày mai để bắt đầu mọi thứ", HLV Ivan Hasek tự tin bày tỏ.
+
+Bồ Đào Nha được coi là ứng cử viên nặng ký cho chức vô địch Euro 2024 vào ngày 14/7, nhưng họ trước mắt phải vượt qua thử thách đến từ CH Séc, Thổ Nhĩ Kỳ và Georgia ở bảng D.
+
