@@ -1,0 +1,38 @@
+---
+layout: post
+title: "🔥🔥🔥🔥 [Manuel Neuer] EM 2024: 'Überragend!' Neuer-Parade begeistert TV-Experten"
+date: Wed, 19 Jun 2024 19:00:00 +0200
+categories: entries DE
+---
+[EM 2024: 'Überragend!' Neuer-Parade begeistert TV-Experten](https://www.sport1.de/news/fussball/em/2024/06/em-2024-uberragend-neuer-parade-begeistert-kommentator-und-schweinsteiger)
+
+![EM 2024: 'Überragend!' Neuer-Parade begeistert TV-Experten](https://reshape.sport1.de/c/t/63332f60-4e7e-4bd8-a863-16924a98695d/1200x630)
+
+Manuel Neuer rettet die DFB-Elf mit einer Parade vor dem Ausgleich von Ungarn. Dafür gibt es viel Lob.
+
+von SPORT1 19.06.2024 • 19:38 Uhr Manuel Neuer rettet die DFB-Elf mit einer Parade vor dem Ausgleich von Ungarn. Dafür gibt es viel Lob.
+
+Deutschland führt im zweiten Gruppenspiel der Heim-EM gegen Ungarn (im LIVETICKER) zur Pause mit 1:0. Jamal Musiala brachte den DFB nach 22 Minuten in Führung. Kurz danach durften sich die Deutschen aber auch bei Manuel Neuer bedanken, der die Führung mit einer Parade sicherte. Mitspieler, Kommentatoren und Fans zeigten sich begeistert. „Manu hält ihn super“, sagte Bastian Schweinsteiger in der Pause in der ARD.
+
+{ "placeholderType": "MREC" }
+
+Was war passiert? In der 25. Minute bekam Ungarn einen Freistoß unmittelbar vor dem deutschen Sechszehner zugesprochen. Liverpool-Star Dominik Szoboszlai schnippelte den Ball an der Mauer vorbei, doch Neuer kratzte ihn gerade noch so aus der Ecke. Anschließend schaltete er schnell und wehrte den Nachschuss noch ab.
+
+Manuel Neuer rettete den DFB mit einer starken Parade vor dem Ausgleich
+
+Kimmich feiert Neuer ab
+
+„Manuel Neuer - überragende Parade! Alle sofort bei ihm!“, jubelte ARD-Kommentator Tom Bartels direkt. Tatsächlich waren die Mitspieler unmittelbar nach der Szene zu Neuer gerannt und bedankten sich bei ihm. Besonders Joshua Kimmich feierte seinen Bayern-Mitspieler völlig ab.
+
+Auch nach der Wiederholung war Bartels völlig begeistert: „Fantastische Parade von Neuer.“ ARD-Expertin Almuth Schult ergänzte: „So wichtig, dass er da die Hände ran kriegt. Noch wichtiger, dass er in der zweiten Aktion die Füße rankriegt. Da wird er zu Recht gefeiert.“
+
+{ "placeholderType": "MREC" }
+
+Auch in der Halbzeit-Analyse bei MagentaTV gab es Lob. Michael Ballack sagte über die Szene: „Er wartet lang. Es ist ein ganz blöder Ball für den Torwart - man weiß nicht, ob er rankommt. Mit seiner Erfahrung macht er das natürlich gut. Trotzdem musst du den erstmal halten. Dann hat er mit dem Fuß noch mal gut reagiert. Klasse bisher!“
+
+Tabea Kemme, ehemalige deutsche Fußballerin, gab ihm Recht: „Auf jeden Fall zweimal Weltklasse. Der kommt mit Zug über die Mauer, Neuer ist da. Man sieht, dass er ihn noch greifen will, aber der Ball hat so einen Zug drauf. Aber er steht schnell wieder da und bereinigt auch den Nachschuss.“
+
+Wenn du hier klickst, siehst du Twitter-Inhalte und willigst ein, dass deine Daten zu den in der Datenschutzerklärung von Twitter dargestellten Zwecken verarbeitet werden. SPORT1 hat keinen Einfluss auf diese Datenverarbeitung. Du hast auch die Möglichkeit alle Social Widgets zu aktivieren. Hinweise zum Widerruf findest du hier . IMMER AKZEPTIEREN EINMAL AKZEPTIEREN
+
+Auch in den sozialen Medien gab es Lob für Deutschlands Nummer Eins. Manche Nutzer auf X verglichen ihn direkt mit einer Mauer, die in das DFB-Tor gebaut wurde. Selbst eine Fanpage vom FC Arsenal erkannte direkt an: „Manuel Neuer ist der beste Torhüter aller Zeiten. Da kann mich keiner überzeugen.“ Ein weiterer User schrieb sogar, dass man ein Bild der Neuer-Parade als Kunstwerk im Louvre ausstellen könnte.
+
