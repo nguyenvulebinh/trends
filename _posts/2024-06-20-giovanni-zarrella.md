@@ -1,0 +1,20 @@
+---
+layout: post
+title: "🔥🔥 [Giovanni Zarrella] Giovanni Zarrella: Duett mit diesem französischen Mega-Star ..."
+date: Thu, 20 Jun 2024 21:00:00 +0200
+categories: entries DE
+---
+[Giovanni Zarrella: Duett mit diesem französischen Mega-Star ...](https://www.schlager.de/news/giovanni-zarrella-duett-mit-diesem-franzoesischen-mega-star/258418/)
+
+![Giovanni Zarrella: Duett mit diesem französischen Mega-Star ...](https://static.schlager.de/uploads/2024/06/www.schlager.de-giovanni-zarrella-duett-mit-diesem-franzoesischen-mega-star-imago0580596725h.jpg)
+
+Giovanni Zarrella ist mittlerweile zu einem der größten Schlagerstars der Schlagerbranche aufgestiegen. Seine Musik ist mega-erfolgreich (mit "Fantastico" ...
+
+Giovanni Zarrella ist mittlerweile zu einem der größten Schlagerstars der Schlagerbranche aufgestiegen. Seine Musik ist mega-erfolgreich (mit “Fantastico” hat er einen riesen Sommerhit veröffentlicht) und mit seiner “Giovanni Zarrella Show” erfreut er Millionen Zuschauer im ZDF. Die Sendung lebt unter anderem von den Duetten mit dem Italiener, aber mit EINEM Künstler könnte sich Giovanni mehr vorstellen…
+
+Giovanni Zarrella war kürzlich zu Gast beim Berliner Radiosender 94,3 RS2 und plauderte dort vorwiegend über Fussball und natürlich Musik. Bei Instagram veröffentlichte der Sender nun ein Video, in dem Gio einige Fragen gestellt wurden. Unter anderem wurde er gefragt, mit welche Künstler er sich denn eine Zusammenarbeit vorstellen könnte. Nach reiflicher Überlegung kam für Gio nur einer infrage: David Guetta - der wohl bekannteste DJ und Musikproduzent der Welt.
+
+David Guetta: Mega-Star mit Mega-Künstlern
+
+David Guetta hat zwar mit der Schlagerbranche nichts am Hut, ist aber bekannt dafür, mit vielen internationalen Stars zusammen zu arbeiten. Unter anderem hatte er schon Songs mit Lady Gaga, Britney Spears oder auch Anastacia, die mittlerweile gern gesehener Gast bei Florian Silbereisen-Shows ist. Warum nicht also auch mal einen Hit mit Giovanni Zarrella landen? Wir sind gespannt, ob es zu dieser spannenden Zusammenarbeit kommt...
+
