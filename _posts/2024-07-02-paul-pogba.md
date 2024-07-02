@@ -1,0 +1,32 @@
+---
+layout: post
+title: " [Paul Pogba] Paul Pogba: Sự nghiệp của tôi vẫn chưa kết thúc"
+date: Tue, 02 Jul 2024 17:00:00 +0700
+categories: entries VN
+---
+[Paul Pogba: Sự nghiệp của tôi vẫn chưa kết thúc](https://bongda24h.vn/bong-da-chau-au/paul-pogba-su-nghiep-cua-toi-chua-ket-thuc-184-392485.html)
+
+![Paul Pogba: Sự nghiệp của tôi vẫn chưa kết thúc](https://static.bongda24h.vn/medias/standard/2024/07/02/paul-pogba-0207180729.jpg)
+
+Tiền vệ Paul Pogba của Juventus khẳng định anh sẽ tiếp tục chiến đấu để chống lại án treo giò bất công vì doping của mình.
+
+Paul Pogba khẳng định anh sẽ tiếp tục chiến đấu để chống lại án treo giò bất công vì doping của mình.
+
+Paul Pogba: Sự nghiệp của tôi chưa kết thúc
+
+Paul Pogba khẳng định anh không giải nghệ dù bị cấm thi đấu 4 năm vì doping. Tiền vệ của Juventus đã phải đón nhận án phạt vào tháng 2 sau khi dương tính với DHEA hồi tháng 9 năm ngoái. DHEA là một hợp chất sản xuất hormone trong cơ thể, bao gồm testosterone.
+
+Paul Pogba: Sự nghiệp của tôi chưa kết thúc
+
+Phán quyết này đồng nghĩa với việc Paul Pogba bị cấm thi đấu cho đến tháng 8 năm 2027, khi anh 34 tuổi. Vào tháng 9, tờ Al Jazeera dẫn lời Pogba nói rằng anh đang cân nhắc giải nghệ.
+
+Nhưng trong buổi phỏng vấn với Sky Italy, Pogba khẳng định anh muốn chiến đấu chống lại sự bất công trong lệnh cấm thi đấu hiện tại và cho biết anh vẫn có kế hoạch trở lại chơi bóng.
+
+“Vẫn có có khả năng chống lại sự bất công này, và đó là điều mà tôi tin tưởng. Hãy chờ xem. Hy vọng mọi thứ sẽ tốt hơn. Tôi luôn tích cực. Nhưng hãy chờ xem.
+
+Tôi chưa bao giờ nói rằng mình đã tiêu đời, rằng Paul Pogba không còn tồn tại nữa. Bởi vì Pogba vẫn ở đây. Hôm nay tôi ở đây. Tôi là Pogba. Bạn chưa bao giờ thấy tôi rằng đời tôi xong rồi.
+
+Tôi vẫn cảm thấy như một cầu thủ bóng đá. Tôi vẫn tập luyện và đây là thời điểm mà tôi cần phải tích cực. Tôi đang ở cùng gia đình, dành nhiều thời gian với họ, nhìn các con của tôi lớn lên”.
+
+Khi được hỏi tình hình ở Juventus, Pogba trả lời: “Tin tức mới nhất thì tôi vẫn là một cầu thủ của Juventus. Vậy nên bạn cần phải nói chuyện với họ. Tôi vẫn còn hợp đồng với họ. Tôi chưa có cơ hội nói chuyện với giám đốc thể thao hay HLV. Tôi không biết nhiều, đang có một sự im lặng ở đó. Có thể họ chờ đợi quyết định kháng án để xem điều gì sẽ xảy ra. Phần còn lại thì các bạn nên hỏi họ”.
+
