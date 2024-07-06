@@ -1,0 +1,50 @@
+---
+layout: post
+title: " [Anh trai vượt ngàn chông gai tập 2] Đăng Khôi gây xúc động trở lại sau 10 năm cùng mẹ ruột - mẹ vợ ..."
+date: Sat, 06 Jul 2024 23:00:00 +0700
+categories: entries VN
+---
+[Đăng Khôi gây xúc động trở lại sau 10 năm cùng mẹ ruột - mẹ vợ ...](https://laodong.vn/van-hoa-giai-tri/dang-khoi-gay-xuc-dong-tro-lai-sau-10-nam-cung-me-ruot-me-vo-vuot-qua-benh-ung-thu-1362684.ldo)
+
+![Đăng Khôi gây xúc động trở lại sau 10 năm cùng mẹ ruột - mẹ vợ ...](https://media-cdn-v2.laodong.vn/storage/newsportal/2024/7/6/1362684/Dngkhoi-Bld3.jpg?w=800&h=420&crop=auto&scale=both)
+
+Tập 2 của " Anh trai vượt ngàn chông gai " gây xúc động bởi sự trở lại của nhiều "anh tài" nhiều năm vắng bóng trên sân khấu.
+
+Anh Trang - Thứ bảy, 06/07/2024 22:23 (GMT+7)
+
+Tập 2 của " Anh trai vượt ngàn chông gai " gây xúc động bởi sự trở lại của nhiều "anh tài" nhiều năm vắng bóng trên sân khấu.
+
+"Anh tài" Đăng Khôi. Ảnh: Facebook nhân vật
+
+Trong tập 2 "Anh trai vượt ngàn chông gai”, 27 tiết mục của 5 nhóm còn lại được các "anh tài" thể hiện bùng nổ. Và sự trở lại với sân khấu của Đăng Khôi nhận được quan tâm của khán giả.
+
+Đăng Khôi chia sẻ: "Hơn 10 năm trôi qua, trong suốt những năm tháng ấy, âm nhạc… chưa bao giờ rời xa tôi. Mỗi giai điệu, mỗi ca từ vẫn vang lên trong trái tim tôi, như ngọn lửa âm ỉ chờ ngày bùng cháy trở lại".
+
+Nam ca sĩ trải lòng, hơn 10 năm trôi qua, những tháng ngày đồng hành cùng 2 mẹ vượt qua căn bệnh ung thư đã thực sự thử thách sức mạnh và lòng kiên nhẫn của anh.
+
+Đăng Khôi đã chứng kiến sự kiên cường của 2 mẹ, từng bước vượt qua những cơn đau. Anh cảm nhận rõ ràng hơn bao giờ hết lòng quyết tâm của 2 mẹ.
+
+"2 mẹ đã chiến đấu, dù phải chịu đựng nỗi đau của bệnh tật, vẫn luôn dành trọn tình yêu và sự quan tâm đến gia đình. Những khoảnh khắc ấy đã khắc sâu vào tâm trí tôi, làm nền tảng cho sự kiên cường và lòng quyết tâm của tôi đến ngày hôm nay", Đăng Khôi xúc động nhắc về 2 người mẹ.
+
+Nam ca sĩ biết rằng, con đường trở lại sẽ không hề dễ dàng. Nhưng với tất cả tình yêu và sự nỗ lực, Đăng Khôi tin hành trình trở lại này sẽ là một hành trình ý nghĩa, không chỉ để chinh phục những thử thách mới mà còn là lúc để anh tri ân những người đã luôn yêu thương và ủng hộ mình.
+
+Sự trở lại của Đăng Khôi tại tập 2 "Anh trai vượt ngàn chông gai" đã không làm khán giả thất vọng.
+
+Trong tập 2, Đăng Khôi cùng Quốc Thiên, Phạm Khánh Hưng làm mới lại bản hit "Sóng tình" khi chung nhóm "Thanh xuân học đường".
+
+Nhóm "Bí ẩn" gồm (S)TRONG Trọng Hiếu, S.T Sơn Thạch, Thanh Duy, BB Trần, Neko Lê khiến khán giả không ngừng nhún nhảy với "Người lạ ơi".
+
+Nhóm "Đa sắc" gồm Jun Phạm, Tăng Phúc, Duy Khánh, Bùi Công Nam, HuyR biến hóa với ca khúc "Anh nhà ở đâu thế" thành một tiết mục vui nhộn, trẻ trung.
+
+Ngoài ra, khả năng làm mới các ca khúc của nhóm "Nham thạch" gồm BinZ, Rhymastic, Tiến Đạt, Hà Lê tạo nên sức bùng nổ lớn bởi nhóm kết hợp nhiều giọng ca tài năng của làng rap Việt.
+
+Nhóm “Quý ông đa tình“. Ảnh: Nhà sản xuất.
+
+Nhóm "Quý ông đa tình" vốn không phải ca sĩ chuyên nghiệp gồm: Duy Nhất, Liên Bỉnh Phát, Tiến Luật, Thiên Minh, Trương Thế Vinh. Thế nhưng sự hòa ca của những "anh tài" vô cùng mượt mà với bài hát "Phía sau một cô gái".
+
+Kết thúc tập 2, những "anh tài" đạt 300 điểm hỏa lực lần lượt là: BB Trần, Tiến Luật, Jun Phạm, Binz, Quốc Thiên.
+
+Người cầm trịch chương trình là MC Anh Tuấn và hai "chị đẹp" Hoàng Oanh, Phương Ly.
+
+Điểm đặc biệt trong tập 2 là chương trình sẽ được phát sóng 3 tiếng trên kênh YouTube, dài gần gấp đôi so với bản chiếu VTV3, tiết lộ nhiều chi tiết hấp dẫn.
+
