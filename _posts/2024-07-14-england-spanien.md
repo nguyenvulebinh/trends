@@ -1,0 +1,48 @@
+---
+layout: post
+title: "🔥🔥🔥🔥 [England Spanien] Spanien feiert Europameister-Titel in Berlin"
+date: Sun, 14 Jul 2024 13:00:00 +0200
+categories: entries DE
+---
+[Spanien feiert Europameister-Titel in Berlin](https://www.rbb24.de/sport/beitrag/2024/07/fussball-berlin-europameisterschaft-em-liveticker-audiostream.html)
+
+![Spanien feiert Europameister-Titel in Berlin](https://www.rbb24.de/content/dam/rbb/rbb/rbb24/2024/2024_07/imago-images/spanien-feiert-em-titel.jpg.jpg/size=708x398.jpg)
+
+Spanien ist der neue Fußball-Europameister. Im Berliner Olympiastadion setzte sich die Mannschaft von Luis de la Fuente verdient gegen England durch.
+
+2:1-Erfolg gegen England - Spanien feiert Europameister-Titel in Berlin
+
+So 14.07.24 | 23:07 Uhr
+
+imago images/Shutterstock Video: rbb|24 | 15.07.2024 | Material: rbb | Bild: imago images/Shutterstock
+
+Spanien ist der neue Fußball-Europameister. Im Berliner Olympiastadion setzte sich die Mannschaft von Luis de la Fuente verdient gegen England durch. Keine andere Nation hat nun öfter den Titel geholt.
+
+Spaniens unbezwingbare Ballzauberer um Nico Williams und Lamine Yamal haben ihren makellosen Erfolgslauf historisch vollendet. Der Favorit erklomm im Berliner Olympiastadion
+
+mit einem 2:1 (0:0) gegen England zwölf Jahre nach dem letzten Triumph erneut den EM-Thron und krönte sich mit dem vierten Titel zum alleinigen Rekord-Europameister. Während England die so lange ersehnte Trophäe wieder einmal verwehrt blieb, schrieb die Mannschaft von Trainer Luis de la Fuente Geschichte.
+
+
+
+England geht erneut leer aus
+
+Williams (47.) traf nach Zuspiel des Wunderkinds Yamal, das nun mit 17 Jahren der jüngste Europameister jemals ist, zur Führung. Mikel Oyarzabal (86.) machte den ganz großen Coup perfekt: Spanien jubelte wie schon 1964, 2008 und 2012. Mit dem siebten Sieg im siebten Turnierspiel setzte sich Spanien vor Deutschland (drei
+
+Titel) an die Spitze der Europameister-Liste und übertraf mit 15 Toren den bisherigen französischen EM-Rekord aus dem Jahr 1984. Das Sommermärchen der DFB-Elf hatte Spanien bereits im Viertelfinale abrupt beendet. Im Olympiastadion, wo das Team von de la Fuente am 15. Juni mit einem 3:0 gegen Kroatien ins Turnier gestartet war, zerstörten Kapitän Alvaro Morata und Co. nun auch die englischen Hoffnungen auf den ersten EM-Titel - trotz des zwischenzeitlichen Ausgleichs durch Cole Palmer (73.). Nach der dramatischen Elfmeter-Pleite im eigenen Land gegen Italien vor drei
+
+Jahren ging die Mannschaft von Trainer Gareth Southgate am Ende erneut leer aus.
+
+
+
+Spanien insgesamt zu stark
+
+Für den Showdown gegen England kehrten bei Spanien die im Halbfinale gegen Frankreich (2:1) gesperrten Dani Carvajal und Robin Le Normand zurück in die Startelf, Jesus Navas und Nacho nahmen deshalb erst einmal wieder auf der Bank Platz. Bei England ersetzte Luke Shaw im linken Mittelfeld Kieran Trippier und behielt dort gleich im ersten Duell mit Youngster Yamal die Oberhand. Viel lief bei Spanien zu Beginn über die linke Seite, Williams dribbelte immer wieder Richtung englischer Strafraum, wurde dabei aber unter anderem von John Stones gestoppt (12.). De la Fuentes Team begann kontrolliert und mit viel Ballbesitz, konnte daraus aber kein Kapital schlagen. Zu gefährlichen Torchancen kam zunächst jedoch keines der beiden Teams. England wurde zwar aktiver, doch Rodri warf sich kurz vor der Pause in einen Schuss von Englands Kapitän Harry Kane. Wenig später versuchte es Phil Foden (45.+1) nach einem Freistoß aus kurzer Distanz, scheiterte bei der bis dahin besten Möglichkeit der Partie allerdings an Spaniens Keeper Unai Simon.
+
+AP/Markus Schreiber EM-Finale in Berlin - "Diese EM haben wir gebraucht, um runterzukommen" Die EM feiert ihr großes Finale in Berlin. Noch einmal strömen Tausende Fans in die Metropole - und die Krisen dieser Welt scheinen für kurze Zeit vergessen. Doch nicht alle Berliner sehen ihre Erwartungen an dieses Großereignis erfüllt. Von Hasan Gökkaya
+
+Nach der Pause startete dann aber die spanische Flügelzange durch, nach Vorarbeit von Yamal traf Williams zur Führung und glänzte kurz darauf beinahe als Vorlagengeber. Doch der Leipziger Dani Olmo verzog (49.), Williams selbst setzte einen weiteren Schuss neben das Tor (56.), Yamal scheiterte an Jordan Pickford (66.). Spanien ließ nicht nach und machte weiter Druck, der kurz zuvor eingewechselte Palmer brachte England jedoch wieder ins Spiel. Danach schnürte Spanien den Gegner ein - und dann traf Oyarzabal entscheidend nach Vorlage von Marc Cucurella. Der Linksverteidiger wurde nach seinem Handspiel gegen Deutschland im Viertelfinale wie schon im Halbfinale in München 90 Minuten lang ausgepfiffen.
+
+Der Liveticker zum Nachlesen
+
+Sendung: rbb24 Inforadio, 15.07.2024, 8:00 Uhr
+
