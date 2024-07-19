@@ -1,0 +1,18 @@
+---
+layout: post
+title: "🔥🔥 [Barack Obama] Joe Biden und Barack Obama: Es begann mit einer SMS – und jetzt?"
+date: Fri, 19 Jul 2024 01:00:00 +0200
+categories: entries DE
+---
+[Joe Biden und Barack Obama: Es begann mit einer SMS – und jetzt?](https://www.spiegel.de/ausland/joe-biden-und-barack-obama-die-stationen-der-politischen-weggefaehrten-in-bildern-a-24a2e3ff-fb66-4111-b3a6-d5d9be83ef1e)
+
+![Joe Biden und Barack Obama: Es begann mit einer SMS – und jetzt?](https://cdn.prod.www.spiegel.de/images/a6b72786-820f-446a-87f3-77ef51456a55_w1200_r1.778_fpx51_fpy35.jpg)
+
+Joe Biden sollte seine Präsidentschaftskandidatur überdenken, das soll Barack Obama Vertrauten gesagt haben. Es ist die jüngste Volte einer langen und ...
+
+2 / 9
+
+»Ich will jemanden mit grauen Haaren«
+
+Als Barack Obama 2008 nach seinem »Running mate« und damit dem möglichen Vizepräsidenten suchte, fiel seine Wahl auf Joe Biden. »Ich will jemanden mit grauen Haaren«, sagte Obama seinem Kampagnenteam der »New York Times« zufolge. Biden war damals 65 Jahre alt und wie gewünscht schon ergraut. Zudem war er zwar ein politisches Schwergewicht, hatte jedoch kaum eine eigene große Zukunft im Weißen Haus, wie es die Zeitung schreibt. Obama versprach sich von Biden Loyalität und vor allem wenig Drama. Am 23. August 2008 verkündete Obama seinen Running mate Biden per SMS und nahm ihn dann mit auf die Wahlkampfbühne.
+
