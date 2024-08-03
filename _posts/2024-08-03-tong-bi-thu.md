@@ -1,0 +1,38 @@
+---
+layout: post
+title: "🔥🔥 [Tổng Bí thư] Lãnh đạo Lào, Campuchia chúc mừng Tổng Bí thư Tô Lâm"
+date: Sat, 03 Aug 2024 11:00:00 +0700
+categories: entries VN
+---
+[Lãnh đạo Lào, Campuchia chúc mừng Tổng Bí thư Tô Lâm](https://vnexpress.net/lanh-dao-lao-campuchia-chuc-mung-tong-bi-thu-to-lam-4777377.html)
+
+![Lãnh đạo Lào, Campuchia chúc mừng Tổng Bí thư Tô Lâm](https://i2-vnexpress.vnecdn.net/2024/08/03/to-la-m-jpeg-2261-1722660455-1-2909-5526-1722668120.jpg?w=1200&h=0&q=100&dpr=1&fit=crop&s=IcxmG8xrbxk7BCK_pb-K_g)
+
+Tổng Bí thư, Chủ tịch nước Lào Sisoulith và Chủ tịch đảng Nhân dân Campuchia Hun Sen gửi điện mừng nhân dịp Chủ tịch nước Tô Lâm được bầu làm Tổng Bí thư.
+
+Tổng Bí thư, Chủ tịch nước Lào Sisoulith và Chủ tịch đảng Nhân dân Campuchia Hun Sen gửi điện mừng nhân dịp Chủ tịch nước Tô Lâm được bầu làm Tổng Bí thư.
+
+"Thay mặt Ban Chấp hành Trung ương đảng Nhân dân Cách mạng Lào và nhân danh cá nhân, tôi vinh dự và nhiệt liệt chúc mừng đồng chí Tô Lâm đã được bầu giữ chức Tổng Bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam", Tổng Bí thư, Chủ tịch nước Lào Thongloun Sisoulith cho biết trong điện mừng hôm nay.
+
+Lãnh đạo Lào tin tưởng dưới sự lãnh đạo của Đảng Cộng sản Việt Nam do Tổng Bí thư Tô Lâm đứng đầu, Việt Nam sẽ tiếp tục đạt được nhiều thành tựu mới, to lớn hơn trong sự nghiệp đổi mới, hoàn thành mục tiêu xây dựng Việt Nam trở thành nước công nghiệp theo hướng hiện đại, dân giàu, nước mạnh, dân chủ, công bằng, văn minh và trở thành nước phát triển theo định hướng xã hội chủ nghĩa.
+
+Ông Sisoulith khẳng định sẽ sát cánh cùng Tổng Bí thư, Chủ tịch nước Tô Lâm và các lãnh đạo Đảng, nhà nước Việt Nam tiếp tục củng cố, vun đắp mối quan hệ hữu nghị vĩ đại, đoàn kết đặc biệt và hợp tác toàn diện giữa hai nước ngày càng phát triển, mang lại lợi ích thiết thực cho nhân dân hai nước, góp phần vào hòa bình, ổn định, hợp tác và phát triển trong khu vực và trên thế giới.
+
+Chủ tịch đảng Nhân dân Campuchia Hun Sen cùng ngày gửi điện mừng, cho rằng việc Chủ tịch nước Tô Lâm được bầu làm Tổng Bí thư "thể hiện sự tin tưởng của Đảng Cộng sản Việt Nam và toàn thể nhân dân Việt Nam về năng lực và sự lãnh đạo sáng suốt của đồng chí".
+
+Ông Hun Sen bày tỏ tin tưởng dưới sự lãnh đạo của ông Tô Lâm, Đảng Cộng sản Việt Nam sẽ tiếp tục thực hiện thành công mục tiêu, bảo đảm ổn định chính trị, phát triển kinh tế - xã hội và duy trì hòa bình, ổn định và thịnh vượng của Việt Nam cũng như trong khu vực.
+
+Chủ tịch đảng Nhân dân Campuchia tin rằng quan hệ hữu nghị truyền thống, đoàn kết và hợp tác chặt chẽ giữa hai đảng sẽ ngày càng đi vào chiều sâu, vì lợi ích của nhân dân hai nước và hai dân tộc.
+
+Tổng Bí thư, Chủ tịch nước Tô Lâm tại hội nghị sáng 3/8. Ảnh: Hoàng Phong
+
+Chủ tịch nước Tô Lâm được Ban chấp hành Trung ương Đảng khóa 13 bầu làm Tổng Bí thư nhiệm kỳ 2021-2026 sáng 3/8 với 100% phiếu ủng hộ.
+
+Ông Tô Lâm, 67 tuổi, quê huyện Văn Giang, tỉnh Hưng Yên. Ông là Ủy viên Trung ương Đảng ba khóa 11, 12, 13; Ủy viên Bộ Chính trị hai khóa 12, 13; đại biểu Quốc hội hai khóa 14, 15. Đầu năm 2019, ông được Tổng Bí thư, Chủ tịch nước Nguyễn Phú Trọng thăng quân hàm lên đại tướng, trở thành người thứ tư trong lịch sử công an nhân dân mang quân hàm cao nhất.
+
+Đại tướng Tô Lâm, Bộ trưởng Công an, được Quốc hội bầu giữ chức Chủ tịch nước nhiệm kỳ 2021-2026 ngày 22/5. Trên cương vị người đứng đầu Nhà nước, ông đã công du Lào và Campuchia, thể hiện thông điệp "ưu tiên cao nhất" mối quan hệ với hai láng giềng.
+
+Tổng Bí thư Ban Chấp hành Trung ương Đảng Cộng sản Việt Nam là chức danh lãnh đạo cao nhất của Đảng Cộng sản Việt Nam. Điều lệ Đảng quy định Ban Chấp hành Trung ương bầu Bộ Chính trị và bầu Tổng Bí thư trong số Ủy viên Bộ Chính trị.
+
+Như Tâm
+
