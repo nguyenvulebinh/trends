@@ -1,0 +1,20 @@
+---
+layout: post
+title: "🔥🔥🔥 [Meppen HSV] DFB-Pokal: HSV zieht gegen SV Meppen in die nächste Runde ein"
+date: Sun, 18 Aug 2024 18:00:00 +0200
+categories: entries DE
+---
+[DFB-Pokal: HSV zieht gegen SV Meppen in die nächste Runde ein](https://www.shz.de/sport/hsv/artikel/dfb-pokal-hsv-zieht-gegen-sv-meppen-in-die-naechste-runde-ein-47608460)
+
+![DFB-Pokal: HSV zieht gegen SV Meppen in die nächste Runde ein](https://images.noz-mhn.de/img/47608926/crop/cbase_16_9-w1200/1201209191/463206955/selke.jpg)
+
+Nach den bisherigen Zitterpartien der beiden Nord-Clubs zieht der Hamburger SV souverän in die 2. Runde des DFB-Pokals ein. Davie Selke wurde von den ...
+
+Jetzt sag ich auch mal was
+
+Wir von hier - Das Lokalportal
+
+Wir von hier - Das Lokalportal
+
+Um Ihre Registrierung abzuschließen, gehen Sie in Ihr E-Mail-Postfach und folgen dem Link in der Bestätigungsmail. Danach können Sie den Artikel frei lesen. E-Mail erneut senden
+
