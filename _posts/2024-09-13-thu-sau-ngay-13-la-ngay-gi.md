@@ -1,0 +1,68 @@
+---
+layout: post
+title: " [Thứ sáu ngày 13 là ngày gì] Mai là thứ Sáu ngày 13, vì sao nhiều người sợ? Năm 2024 ngoài ..."
+date: Fri, 13 Sep 2024 12:00:00 +0700
+categories: entries VN
+---
+[Mai là thứ Sáu ngày 13, vì sao nhiều người sợ? Năm 2024 ngoài ...](https://phunutoday.vn/mai-la-thu-sau-ngay-13-vi-sao-nhieu-nguoi-so-nam-2024-ngoai-ngay-13-9-con-may-lan-thu-sau-ngay-13-nua-d430073.html)
+
+![Mai là thứ Sáu ngày 13, vì sao nhiều người sợ? Năm 2024 ngoài ...](https://media.phunutoday.vn/files/news/2024/09/12/mai-la-thu-sau-ngay-13-vi-sao-nhieu-nguoi-so-nam-2024-ngoai-ngay-13-9-con-may-lan-thu-sau-ngay-13-nua-154120.jpg)
+
+Thần thoại Bắc Âu nói rằng vị thần xảo trá Loki đã bí mật hợp tác với thần bóng tối Hoder để ám sát vị thần của hạnh phúc Balder trong một bữa tiệc tại thiên ...
+
+Vì sao thứ Sáu ngày 13 là xui rủi?
+
+Truyền thuyết về thứ Sáu ngày 13 có từ lâu. Đó là ngày được xem là ngày u tối, đáng sợ. Nhiều người tránh ngày này vì cho rằng đó là ngày có nhiều xui rủi.
+
+Trong dân gian từ xa xưa, khi phân loại thì thường chỉ dùng 12 như 12 cá thể, 12 cung hoàng đạo, 12 chòm sao,12 tháng trong 1 năm, 12 giờ trong 1 ngày, 12 vị thần Hy Lạp, 12 tông đồ của Jesus, anh hùng Hercules lập 12 chiến công hay 12 bộ tộc cổ đại của người Israel. Từ đó con số 12 trở thành một con số hoàn hảo. Còn số 13 sẽ đại diện cho sự phá vỡ quy tắc.
+
+Người ta cho rằng chuyện thứ Sáu ngày 13 bắt buồn từ Ki tô giáo. Bữa tối cuối cùng có 13 người trên bàn ăn trong sự kiện của Chúa Jesus, bao gồm Chúa và 12 tông đồ của mình. Vị khách số 13 của bữa tiệc là tông đồ Judas đã phản bội Chúa nên Chúa mới bị bắt và hành quyết trên thập tự giá. Ngày Chúa Jesus bị hành quyết là thứ Sáu ngày 13. Từ đó tín đồ của đạo Thiên Chúa coi thứ sáu ngày 13 là một ngày xui xẻo và đầy tội lỗi, bi kịch đen tối.
+
+Nhiều người sợ thứ Sáu ngày 13
+
+Một sô thông tin cũng cho rằng trên vườn địa đàng, Eva và Adam đã ăn trái cấm bị trục xuất vào ngày thứ Sáu.
+
+Thần thoại Bắc Âu nói rằng vị thần xảo trá Loki đã bí mật hợp tác với thần bóng tối Hoder để ám sát vị thần của hạnh phúc Balder trong một bữa tiệc tại thiên đường Valhalla. Lúc đó, chỉ có 12 vị thân được mời tham dự tiệc, Loki cũng đến dự với tư cách "khách không mời mà đến". Thần hạnh phúc Balder chết, cả Trái Đất chìm trong bóng tối và tang tóc.
+
+Kiêng kỵ con số 13 và thứ 6
+
+Con số 13 trở thành con số vượt ngoài quy chuẩn nên thường bị kiêng kỵ. Con số 13 được coi là một "trường hợp đặc biệt" từ những năm 1780 TCN khi mà trong bộ luật Hammurabi nổi tiếng của người Babylon không hề có điều luật thứ 13. Có tới 80% các toà nhà cao tầng không có tầng 13. Nhiều sân bay bỏ qua cổng thứ 13. Bệnh viện, khách sạn thường xuyên không có phòng 13.
+
+Còn thứ Sáu không bị kiêng kỵ nếu chúng không trùng vào ngày 13. Thứ sáu trùng vào ngày 13 thì nỗi kiêng kỵ tăng gấp bội so với việc kiêng kỵ ngày 13, con số 13.
+
+Nỗi ám ảnh trên thế giới về thứ 6 ngày 13 đã được gọi là paraskavedekatriaphobia, một câu bắt nguồn từ những từ móc nối vào nhau của người Hy Lạp: Παρασκευή, δεκατρείς và φοβία, nghĩa là "Thứ Sáu, số thứ tự thứ 13, sự sợ hãi của từng người".
+
+Người ta cũng ghi chép nhiều sự kiện xui rủi đã diễn ra vào thứ Sáu ngày 13. Ví dụ như
+
+-Vào thứ 6 của ngày 13 tháng 10 năm 1307, uân của các vị tướng thời vua Philip IV của Pháp đã bị tàn phá toàn bộ nhà cửa, hơn 100 người chết vì bị tra tấn vô cùng dã man.
+
+-Vào thứ 6 của ngày 13 tháng 9 năm 1940, cung điện Buckingham của Anh đã bị máy bay của Đức ném 5 quả bom.
+
+- Vào thứ 6 của ngày 13 tháng 10 năm 1989 Thị trường chứng khoán Mỹ chao đảo, bởi tập đoàn UAL, công ty chủ quản United Airlines không được mua lại.
+
+-Vào thứ 6 của ngày 13 tháng 1 năm 2012 Con tàu Costa Concordia đã bị đắm tại bãi biển miền Tây của Italy khiến 32 người mất, sau 3 năm thì thuyền trưởng tàu đã bị kết án vì tội ngộ sát 16 năm tù.
+
+Tuy nhiên những sự kiện này chỉ củng cố thêm nỗi sợ mơ hồ chứ không thể chứng minh thứ Sáu ngày 13 sẽ đen đủi. Trên thế giơi vẫn có những người tin đó chỉ là sự trùng hợp ngẫu nhiên, không có quy luật gì ở đây. Có những người nỗ lực chúng minh con số 13 và ngày thứ 6 chỉ là những phạm trù bình thường nhưng nhiều thứ khác.
+
+Những việc thường bị kiêng kỵ thứ Sáu ngày 13
+
+- Không nên đi qua 1 đám tang
+
+- Không nên cắt tóc
+
+- Không nên đi thuyền vào ngày này
+
+-Không nên bắt đầu kinh doanh khai trương mở hàng vào thứ 6 ngày 13
+
+- Không nên sinh ra vào ngày 13 thứ 66. Không nên xem Horoscope vào ngày này
+
+- Không nên ghi tên mình số thứ tự 13 lên danh sách
+
+- Không nên thay đổi giường vào ngày này
+
+- Không nên đi xa vào ngày thứ 6 ngày 13
+
+- Không nên cắt móng tay vào ngày này
+
+*Thông tin tham khảo chiêm nghiệm
+
