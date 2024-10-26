@@ -1,0 +1,36 @@
+---
+layout: post
+title: " [Elversberg] 2. Liga: Elversberg bestraft schläfrigen HSV"
+date: Sat, 26 Oct 2024 14:00:00 +0200
+categories: entries DE
+---
+[2. Liga: Elversberg bestraft schläfrigen HSV](https://www.kicker.de/elversberg-gegen-hsv-2024-bundesliga-4937168/spielbericht)
+
+![2. Liga: Elversberg bestraft schläfrigen HSV](https://derivates.kicker.de/image/upload/c_crop%2Cx_0%2Cy_235%2Cw_4000%2Ch_2250/w_1200%2Cq_auto/v1/2024/10/26/12d6e827-b425-4568-92eb-86c85ed6f94e.jpeg)
+
+Spielbericht zum Spiel SV Elversberg - Hamburger SV.
+
+Sechs Spiele in Serie hat der HSV zuletzt ohne Niederlage verbracht. Diese Serie endete nun beim 2:4 in Elversberg. Nach der frühen Selke-Führung drehten die Gastgeber das Spiel - vor allem dank einer starken zweiten Hälfte.
+
+Elversbergs Coach Horst Steffen verzichtetet im Vergleich zum 1:1 in Münster auf personelle Wechsel, er schickte dieselbe Anfangself auf den Rasen.
+
+HSV-Trainer Steffen Baumgart musste nach dem 3:1 gegen Magdeburg dagegen einmal wechseln. Der rotgesperrte Kapitän Schonlau wurde von Sommerneuzugang und Startelfdebütant Perrin ersetzt.
+
+Asllani egalisiert Selkes-Führung
+
+Das Spiel war erst sechs Minuten alt, da klingelte der Ball erstmals im Netz. Mit der ersten Offensivszene der Gäste brachte Selke den HSV mit 1:0 in Führung: Nach flacher Hereingabe von Dompé musste er nur noch den Fuß hinhalten. In der Folge nahmen die Szenen vor dem gegnerischen Tor aber erst einmal rapide ab. Der Großteil des Geschehens spielte sich zwischen den beiden Sechzehnern ab. Auch, weil beide Teams immer wieder teils leichtfertige Ballverluste hatten.
+
+Erst in Minute 24 wurde es dann mal wieder gefährlich, doch Petkovs Direktabnahme verpasste das Tor knapp, quasi im Gegenzug scheiterte Selke mit seinem Kopfball an Kristof (25.). Aber auch danach passierte erst einmal wieder wenig - bis in die Schlussphase des ersten Durchgangs. Weil der HSV den Ball nicht geklärt bekam, traf Asllani aus der zweiten Reihe zum 1:1 (41.). Zu dem Zeitpunkt etwas aus dem Nichts, angesichts der ausgeglichenen Spielanteile aber durchaus nicht unverdient.
+
+HSV verschläft Start in Hälfte zwei
+
+Nach der Pause zeichnete sich allerdings ein völlig anderes Bild ab. Elversberg war nun das deutlich aktivere Team, der HSV dagegen noch durchaus schläfrig aus der Kabine gekommen. So war das 2:1 durch Doppelpacker Asllani die logische Konsequenz (53.). Ändern das tat aber nichts, auch danach blieben die Gäste spielbestimmend. HSV-Trainer Steffen Baumgart reagierte und brachte drei frische Kräfte. Doch nur wenige Sekunden später erhöhte Schnellbacher nach Vorlage von Baum auf 3:1 (63.).
+
+Der HSV musste aktiver werden und tat das in Teilen, weil sich auch Elversberg etwas passiver anstellte. Richtig gefährlich wurde es vor dem Elversberger Tor aber nicht. In Minute 76 sah Meffert dann eine recht unnötige Gelbe Karte wegen Meckerns - eine mit Folgen. Denn in Minute 83 verkürzte Selke nach Eckenhereingabe von Muheim auf 2:3. Eine Zeigerumdrehung später flog Meffert wegen eines taktischen Fouls dann jedoch mit Gelb-Rot vom Platz (84.). Genauso wie Co-Trainer Merlin Polzin, der wegen Meckerns gleich zweimal Gelb sah und ebenfalls von der Seitenlinie verbannt wurde.
+
+Fellhauer mit der Entscheidung
+
+In der neunminütigen Nachspielzeit gelang dem HSV vor dem Tor bis auf einen nicht sonderlich gefährlichen Selke-Abschluss (90.+3) auch nicht mehr viel, stattdessen kassierten die Hanseaten durch einen Distanzversuch von Fellhauer noch das 2:4 (90.+6). Dabei blieb es auch, sodass der HSV nach zuletzt sechs Spielen ohne Niederlage wieder verlor und den vorübergehenden Sprung auf Rang eins verpasste. Elversberg dagegen schloss bis auf zwei Punkte auf die Rothosen auf.
+
+In der kommenden Woche sind beide Teams dann zunächst im Pokal gefordert. Die SVE reist am Dienstag (18 Uhr) nach Leverkusen, der HSV nach Freiburg (Mittwoch, 18 Uhr). In der Liga gastiert Elversberg dann am Samstag (13 Uhr) in Regensburg. Der HSV hat am Sonntag (13.30 Uhr) den 1. FC Nürnberg zu Gast.
+
