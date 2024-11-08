@@ -1,0 +1,20 @@
+---
+layout: post
+title: "🔥🔥🔥🔥 [Jörg Kukies] Früherer Co-Chef von Goldman Sachs: Das ist der neue ..."
+date: Thu, 07 Nov 2024 09:00:00 +0100
+categories: entries DE
+---
+[Früherer Co-Chef von Goldman Sachs: Das ist der neue ...](https://www.manager-magazin.de/politik/deutschland/ampel-aus-das-ist-joerg-kukies-der-nachfolger-von-finanzminister-christian-lindner-a-b22aae96-75a9-42ae-8639-74f22fdc0bd2)
+
+![Früherer Co-Chef von Goldman Sachs: Das ist der neue ...](https://cdn.prod.www.manager-magazin.de/images/b7842f7b-d5d4-4309-9e0d-add424d4d006_w1200_r1.778_fpx62_fpy9.jpg)
+
+Der ehemaliger Goldman-Sachs-Banker Jörg Kukies mauserte sich zum wichtigsten Wirtschaftsmann von Olaf Scholz – jetzt wird er Finanzminister.
+
+Als Erstes traf es die Lufthansa, und Kukies macht schnell klar: „Es kann nicht sein, dass der Staat alle Risiken und Verluste trägt, am Erfolg aber nicht teilhat.“ Der Staat müsse auch von steigenden Aktienkursen profitieren. Er agierte wie ein Investmentbanker im Auftrag des Steuerzahlers – und setzt sich in den Verhandlungen durch, sehr zum Leidwesen einiger Lufthansa-Manager.
+
+Seine Zeit als Staatssekretär war geprägt von Krisen. Auf die Coronapandemie folgte der Ukrainekrieg inklusive starker wirtschaftlicher Turbulenzen für den Industriestandort Deutschland.
+
+Jörg Kukies: Vom Praktikanten zum Deutschland-Chef
+
+Kukies gilt als ruhig, sachlich, analytisch. Seine Intelligenz und unerschöpfliche Energie seien vor allem aufgefallen, sagt sein Förderer und Vorgänger bei Goldman Sachs Philip Holzer (58). Ein ehemaliger Goldman-Banker, der Kukies kennt, sieht es so: „Bei Kukies fehlt das empathische, das zwischenmenschliche Element – das machte ihn immer zu einem idealen zweiten Mann.“
+
