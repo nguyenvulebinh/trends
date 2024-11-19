@@ -1,0 +1,38 @@
+---
+layout: post
+title: "🔥🔥 [Ngày 19 tháng 11 là ngày gì] Ngày 19/11 là ngày gì? Các sự kiện lịch sử diễn ra vào ngày 19/11"
+date: Mon, 18 Nov 2024 20:00:00 +0700
+categories: entries VN
+---
+[Ngày 19/11 là ngày gì? Các sự kiện lịch sử diễn ra vào ngày 19/11](https://baonghean.vn/ngay-19-11-la-ngay-gi-cac-su-kien-lich-su-dien-ra-vao-ngay-19-11-10285079.html)
+
+![Ngày 19/11 là ngày gì? Các sự kiện lịch sử diễn ra vào ngày 19/11](https://bna.1cdn.vn/thumbs/1200x630/2024/11/18/su-kien-lich-su.png)
+
+Ngày 19/11: là Ngày Quốc tế Đàn ông. · Ngày 19/11/1863: Tổng thống Hoa Kỳ Abraham Lincoln đọc bài Diễn văn Gettysburg trong lễ thánh hiến nghĩa địa quân đội tại ...
+
+Văn hóa - Văn nghệ Ngày 19/11 là ngày gì? Các sự kiện lịch sử diễn ra vào ngày 19/11 Ngày này năm xưa 19/11. Các sự kiện nổi bật nhất diễn ra vào ngày 19/11, từ những sự kiện lịch sử, chính trị đến những sự kiện văn hóa và xã hội.
+
+Sự kiện trong nước diễn ra trong ngày 19/11
+
+Ngày 19/11/1958: Việt Nam và Campuchia ký hiệp định thương mại chính thức đầu tiên.
+
+Ngày 19/11/1966: Cục Hậu cần (Binh chủng Thông tin liên lạc) được thành lập, đặt dưới sự chỉ đạo trực tiếp của Tổng cục Hậu cần, có nhiệm vụ tiếp nhận, phân phối, bảo đảm mọi cơ sở vật chất hậu cần, tài chính cho cơ quan các đơn vị trực thuộc Cục Thông tin Liên lạc.
+
+Ngày 19/11/1967: Lần đầu tiên không quân Việt Nam bắn rơi một máy bay EB 66 của Mỹ. Biên đội Mig 21 của phi công Vũ Ngọc Đỉnh và Nguyễn Đǎng Kính đã lập chiến công này.
+
+Ngày 19/11/1984: Tiến hành lễ bàn giao công trình Nhà máy Xi mǎng Bỉm Sơn (Thanh Hóa) do Liên Xô viện trợ toàn bộ trang thiết bị và cử chuyên gia sang giúp Việt Nam xây dựng. Đây là công trình lớn đầu tiên được hoàn thành kể từ khi hai nhà nước Việt Nam - Liên Xô ký Hiệp ước hợp tác và hữu nghị ngày 3-11-1978.
+
+Ngày 19/11/1997: Ngày đầu Internet tại Việt Nam được hòa vào mạng Internet toàn cầu.
+
+Sự kiện quốc tế diễn ra trong ngày 19/11
+
+Ngày 19/11: là Ngày Quốc tế Đàn ông. Ngày Quốc tế Đàn ông (IMD) được tổ chức vào ngày 19-11 hằng năm tại hơn 170 quốc gia như: Nam Phi, Áo, Đan Mạch, Ấn Độ, Singapore, Malta, Trinidad và Tobago, Jamaica..., với mục đích truyền bá nhận thức về hạnh phúc của nam giới và tôn vinh những đóng góp tích cực của họ đối với thế giới, gia đình và xã hội.
+
+Ngày 19/11/1863: Tổng thống Hoa Kỳ Abraham Lincoln đọc bài Diễn văn Gettysburg trong lễ thánh hiến nghĩa địa quân đội tại Gettysburg, Pennsylvania.
+
+Ngày 19/11/1967: Đài truyền hình TVB chính thức phát sóng tại Hồng Kông, hiện là đài truyền hình vô tuyến hàng đầu tại lãnh thổ này.
+
+Ngày 19/11/1969: "Vua bóng đá" Pele ghi bàn thắng thứ 1000 trong sự nghiệp.
+
+Ngày 19/11/1990: Các nhà lãnh đạo của NATO và khối VASAVA tuyên bố kết thúc chiến tranh lạnh thông qua việc ký kết Hiệp ước về các lực lượng thông thường và phá hủy các kho vũ khí trong chiến tranh lạnh.
+
