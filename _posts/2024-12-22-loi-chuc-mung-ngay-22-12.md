@@ -1,0 +1,12 @@
+---
+layout: post
+title: " [Lời chúc mừng Ngày 22/12] Đoàn ĐBQH tỉnh Quảng Ninh chúc mừng một số đơn vị nhân kỷ ..."
+date: Sun, 22 Dec 2024 15:00:00 +0700
+categories: entries VN
+---
+[Đoàn ĐBQH tỉnh Quảng Ninh chúc mừng một số đơn vị nhân kỷ ...](https://mongcai.gov.vn/vi-vn/tin/doan-dbqh-tinh-quang-ninh-chuc-mung-mot-so-don-vi-nhan-ky-niem-80-nam-ngay-thanh-lap-quan-doi-nhan-dan-viet-nam-p24021-c58053-n749848)
+
+![Đoàn ĐBQH tỉnh Quảng Ninh chúc mừng một số đơn vị nhân kỷ ...](https://mongcai.gov.vn/caches/news/61339f2d_1000_bch_1000.jpeg)
+
+Ngày 22/12, đồng chí Nguyễn Thị Thu Hà, Tỉnh ủy viên, Phó trưởng đoàn Đại biểu Quốc hội tỉnh và đồng chí Trần Thị Kim Nhung, Ủy viên Thường trực Ủy ban Pháp ...
+
