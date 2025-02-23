@@ -1,0 +1,56 @@
+---
+layout: post
+title: "🔥🔥 [Markus Söder] ZDF-Moderatorin weist Markus Söder nach der Bundestagswahl in ..."
+date: Sat, 22 Feb 2025 17:00:00 +0100
+categories: entries DE
+---
+[ZDF-Moderatorin weist Markus Söder nach der Bundestagswahl in ...](https://politik.watson.de/politik/deutschland/285513721-zdf-moderatorin-weist-markus-soeder-nach-der-bundestagswahl-in-schranken)
+
+![ZDF-Moderatorin weist Markus Söder nach der Bundestagswahl in ...](https://www.watson.de/imgdb/479d/Z1200,675/8866750544036531)
+
+Wie die Umfragen vorausgesagt hatten, geht die Union als stärkste Kraft aus dem Wahltag heraus. CDU und CSU geben sich als Einheit. Kanzlerkandidat Friedrich ...
+
+Geben sich geeint: CSU-Chef Markus Söder (l.) und Unions-Kanzlerkandidat Friedrich Merz. Bild: dpa / Michael Kappeler
+
+Deutschland
+
+ZDF-Moderatorin Bettina Schausten weist Markus Söder in Schranken
+
+Annika Danielmeier Folgen
+
+Mehr «Politik»
+
+Die ersten Hochrechnungen am Sonntagabend wurden in ganz Deutschland mit Spannung erwartet. Wie die Umfragen vorausgesagt hatten, geht die Union als stärkste Kraft aus dem Wahltag heraus. CDU und CSU geben sich als Einheit. Kanzlerkandidat Friedrich Merz (CDU) dankte Bayerns Ministerpräsident Markus Söder (CSU) und trat gemeinsam mit ihm bei der Wahlparty auf die Bühne.
+
+Bei der "Berliner Runde" waren sie hinterher auch zusammen bei ARD und ZDF zu Gast. Er habe ein Versprechen abgegeben, nämlich, dass "CDU und CSU geschlossen agieren werden. Das haben wir getan", erklärte Söder.
+
+Damit lieferte er ARD-Chefredakteur und Co-Moderator Oliver Köhr eine Vorlage, der den CSU-Politiker direkt nach einem weiteren "Versprechen" an die Wähler:innen ausfragte. Nämlich, nicht mit den Grünen zu koalieren. Insbesondere Söder hatte fanatisch und regelmäßig gegen die Grünen gewettert und eine Zusammenarbeit vehement ausgeschlossen.
+
+Keine Koalition mit Grünen? Söder disst ZDF-Prognose
+
+Mit unter 30 Prozent konnte die Union kein bahnbrechendes Ergebnis einfahren (Stand: 23. Februar, 22 Uhr). Die SPD ist auf knapp über 16 Prozent abgestürzt. Ob eine Koalition aus den beiden Parteien für eine Regierungsbildung ausreichen wird, ist noch unklar.
+
+Möglicherweise wird auch nach der Ampel-Regierung wieder ein Dreier-Bündnis nötig werden, sodass doch Sitze und damit Gespräche mit den Grünen nötig werden könnten.
+
+In der Berliner Runde folgte darauf – man könnte sagen – ein typischer Söder-Move. Der kann es sich nicht verkneifen, deutlich in Richtung ZDF zu schießen.
+
+"Also bei den Umfragen in der ARD, da können wir das dann einlösen. Das ZDF ist ein bisschen wackelig noch, warten wir mal ab, was dann am Ende dabei rauskommt", gab sich Söder zuversichtlich.
+
+ZDF-Moderatorin weist Söder zurecht
+
+Moderatorin und ZDF-Chefredakteurin Bettina Schausten wollte das so nicht stehen lassen und grätscht rein.
+
+Die Journalistin und Moderatorin betonte: "Das ZDF ist nie wackelig, Herr Söder. Nur mal zur Klarstellung. Es geht hier um Umfragen von renommierten Instituten."
+
+Söder sagte daraufhin: "Ja klar, das ZDF ist wie es ist."
+
+
+
+Immerhin: Die Szene sorgte für ein wenig Gelächter in der sonst angespannten Runde, bevor Söder dann schnell zum "Ernst" zurückkam: "Wir glauben einfach nicht, dass mit den Grünen ein Richtungswechsel zu organisieren ist", betonte er.
+
+Ganz entscheidend wird für die Koalitionsverhandlungen sein, ob das BSW in den Bundestag einzieht. Anders als die FDP, deren Einzug unwahrscheinlich ist, hat das BSW durchaus gute Chancen.
+
+Denn mit dem BSW im Bundestag würden sich die Mehrheiten insofern verschieben, dass es für ein Zweier-Bündnis für Rot-Schwarz nicht mehr reichen würde. Zum Zeitpunkt der Sendung war das BSW laut ARD raus und laut ZDF drinnen. Vermutlich wollte Söder mit seiner missverständlichen Aussage darauf hinweisen.
+
+
+
